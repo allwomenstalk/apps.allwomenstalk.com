@@ -3,7 +3,7 @@ title: "23 Times J.K. Rowling Owned Twitter ..."
 description: "In Response to a Mysoginistic Troll; Read the Books; She Always Says \"thank You\"; In Response to Ridiculous WBC Bigots; We Love Serena, Too!; More ..."
 url: "https://apps.allwomenstalk.com/times-j-k-rowling-owned-twitter/"
 category: "apps"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 23 Times J.K. Rowling Owned Twitter ...
@@ -168,16 +168,16 @@ It's the 16th anniversary of the Battle of Hogwarts. I'm having a moment's silen
 
 ## Related Posts
 
-- [romance disney movies](https://love.allwomenstalk.com/shock-here-are-the-lies-that-disney-told-us-about-romance/)
 - [periods pain image](https://funny.allwomenstalk.com/cartoons-that-portray-what-our-periods-are-really-like/)
 - [kcd elements](https://lifestyle.allwomenstalk.com/get-your-science-on-with-these-sweet-sketches/)
-- [saucy story](https://love.allwomenstalk.com/short-story-high-school-reunion/)
-- [the black whopper](https://food.allwomenstalk.com/the-curse-of-the-black-whopper-of-the-most-wtf-fast-food-items/)
-- [funny logos](https://funny.allwomenstalk.com/funniest-logo-design-fails-ever-who-designed-these/)
 - [best black and white romantic movies](https://movies.allwomenstalk.com/epic-black-and-white-romances/)
-- [deepawali 2015](https://travel.allwomenstalk.com/happy-diwali/)
 - [if the shoe fits trailer rob lowe](https://movies.allwomenstalk.com/cinderella-the-fairytale-told-many-times-over/)
+- [the black whopper](https://food.allwomenstalk.com/the-curse-of-the-black-whopper-of-the-most-wtf-fast-food-items/)
 - [harry potter book eight](https://books.allwomenstalk.com/things-we-now-know-about-harry-potter-and-the-cursed-child/)
+- [funny logos](https://funny.allwomenstalk.com/funniest-logo-design-fails-ever-who-designed-these/)
+- [deepawali 2015](https://travel.allwomenstalk.com/happy-diwali/)
+- [saucy story](https://love.allwomenstalk.com/short-story-high-school-reunion/)
+- [romance disney movies](https://love.allwomenstalk.com/shock-here-are-the-lies-that-disney-told-us-about-romance/)
 - [5 Reasons Twilight is Better than Harry Potter ...](https://twilight.allwomenstalk.com/5-reasons-twilight-is-better-than-harry-potter/)
 - [5 Facts on Twilight ...](https://twilight.allwomenstalk.com/5-facts-on-twilight/)
 
