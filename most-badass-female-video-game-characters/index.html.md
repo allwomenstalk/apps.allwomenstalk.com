@@ -3,7 +3,7 @@ title: "5 Most Badass Female Video Game Characters ..."
 description: "Elizabeth Comstock – Bioshock Infinite; Ellie – the Last of Us; Elena Fisher – Uncharted Series; Clementine – the Walking Dead; Aveline De Grandpré - Assassin’s Creed: Liberation; More ..."
 url: "https://apps.allwomenstalk.com/most-badass-female-video-game-characters/"
 category: "apps"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 5 Most Badass Female Video Game Characters ...
@@ -43,15 +43,15 @@ Being an assassin is already badass enough, which you’ll know if you’re a fa
 ## Related Posts
 
 - [famous female poems](https://music.allwomenstalk.com/female-artists-whose-music-is-pure-poetry/)
-- [girl punk outfit](https://fashion.allwomenstalk.com/celebrity-punk-style-icons/)
-- [girl from the office](https://movies.allwomenstalk.com/women-from-the-office-who-should-be-your-role-models/)
 - [important female scientists](https://celebs.allwomenstalk.com/famous-female-scientists/)
+- [stranger things females](https://movies.allwomenstalk.com/amazing-women-in-stranger-things/)
+- [girl punk outfit](https://fashion.allwomenstalk.com/celebrity-punk-style-icons/)
 - [common misconceptions about feminism](https://lifestyle.allwomenstalk.com/misconceptions-about-feminism/)
 - [role models images](https://fitness.allwomenstalk.com/female-athletes-who-should-be-your-role-models/)
-- [women comparison](https://inspiration.allwomenstalk.com/women-are-like-water/)
 - [disney character female](https://movies.allwomenstalk.com/weakest-female-disney-characters/)
+- [women comparison](https://inspiration.allwomenstalk.com/women-are-like-water/)
 - [lucy sutcliffe and kaelyn](https://celebs.allwomenstalk.com/inspirational-lesbian-celebs/)
-- [stranger things females](https://movies.allwomenstalk.com/amazing-women-in-stranger-things/)
+- [girl from the office](https://movies.allwomenstalk.com/women-from-the-office-who-should-be-your-role-models/)
 - [5 Best Video Games with Cool Guns ...](https://twilight.allwomenstalk.com/5-best-video-games-with-cool-guns/)
 - [7 Strong and Inspiring Female Characters from Movi...](https://movies.allwomenstalk.com/7-strong-and-inspiring-female-characters-from-movies/)
 

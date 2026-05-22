@@ -3,7 +3,7 @@ title: "What You Should and Shouldnt Post on Social Media ..."
 description: "Do: Think about What You Want to Say; Don't: Post Things That Are TMI (Too Much Information); Do: Post Pictures; Don't: Post Hate Speech; Do: Post Reviews; More ..."
 url: "https://apps.allwomenstalk.com/what-you-should-and-shouldnt-post-on-social-media/"
 category: "apps"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # What You Should and Shouldnt Post on Social Media ...
@@ -36,15 +36,15 @@ Everyone is connected to somebody on social media. When you post something negat
 
 ## Related Posts
 
+- [how to say no to someone asking for a favor](https://inspiration.allwomenstalk.com/times-you-should-absolutely-say-no-when-someone-asks-you-for-a-favor/)
+- [dont drink and text](https://lifestyle.allwomenstalk.com/people-you-should-never-drunk-text/)
+- [why you shouldnt take relationship advice](https://love.allwomenstalk.com/bad-relationship-advice-you-shouldnt-listen-to/)
 - [you do bridesmaids gif](https://wedding.allwomenstalk.com/things-that-annoy-bridesmaids/)
 - [am i being creepy to my crush](https://love.allwomenstalk.com/creepy-things-not-to-do-when-you-have-a-crush/)
 - [What Not to Party: Showing up Early](https://allwomenstalk.com/what-not-to-party-showing-up-early/)
-- [to take advice](https://inspiration.allwomenstalk.com/types-of-people-you-shouldnt-take-advice-from/)
-- [why you shouldnt take relationship advice](https://love.allwomenstalk.com/bad-relationship-advice-you-shouldnt-listen-to/)
 - [10 Things Not to Say during Sex ...](https://love.allwomenstalk.com/things-not-to-say-during-sex/)
-- [how to say no to someone asking for a favor](https://inspiration.allwomenstalk.com/times-you-should-absolutely-say-no-when-someone-asks-you-for-a-favor/)
+- [to take advice](https://inspiration.allwomenstalk.com/types-of-people-you-shouldnt-take-advice-from/)
 - [bad twilight tattoo](https://lifestyle.allwomenstalk.com/the-worst-places-for-tattoos-according-to-tattoo-artists/)
-- [dont drink and text](https://lifestyle.allwomenstalk.com/people-you-should-never-drunk-text/)
 - [match.com dating profile examples](https://love.allwomenstalk.com/scientists-found-the-biggest-turn-offs-in-your-online-dating-profile/)
 - [7 Tips on Using Facebook for Your Business ...](https://lifestyle.allwomenstalk.com/tips-on-using-facebook-for-your-business/)
 - [7 Things You Shouldnt do on Facebook ...](https://allwomenstalk.com/7-things-you-shouldnt-do-on-facebook/)
