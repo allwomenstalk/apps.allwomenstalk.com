@@ -58,12 +58,12 @@ Are you going to download any of these apps? As you can see by the prices, beaut
 
 ## Related Posts
 
-- [turn shower into spa](https://beauty.allwomenstalk.com/how-to-turn-your-shower-into-a-diy-spa/)
-- [what beauty treatments should i get regularly](https://beauty.allwomenstalk.com/how-often-should-you-do-home-beauty-treatments/)
-- [college beauty essentials](https://beauty.allwomenstalk.com/brilliant-beauty-tips-for-college-students-everywhere/)
-- [makeup secrets](https://makeup.allwomenstalk.com/how-to-look-pretty-without-wearing-makeup/)
 - [paris riche le stylo smoky eye spark](https://beauty.allwomenstalk.com/heres-how-you-can-get-longer-lashes-using-only-natural-remedies/)
 - [prettygirls](https://beauty.allwomenstalk.com/household-items-you-should-include-in-your-beauty-routine/)
+- [turn shower into spa](https://beauty.allwomenstalk.com/how-to-turn-your-shower-into-a-diy-spa/)
+- [makeup secrets](https://makeup.allwomenstalk.com/how-to-look-pretty-without-wearing-makeup/)
+- [college beauty essentials](https://beauty.allwomenstalk.com/brilliant-beauty-tips-for-college-students-everywhere/)
+- [what beauty treatments should i get regularly](https://beauty.allwomenstalk.com/how-often-should-you-do-home-beauty-treatments/)
 - [weird skin care](https://skincare.allwomenstalk.com/weird-skincare-tips-that-actually-work/)
 - [masking liner](https://skincare.allwomenstalk.com/why-multi-masking-is-the-new-beauty-buzz/)
 - [morning pampering](https://beauty.allwomenstalk.com/morning-beauty-habits-that-will-make-you-more-beautiful/)

@@ -63,16 +63,16 @@ There are a countless number of fantastic apps for your mobile device to help yo
 
 ## Related Posts
 
-- [fight tracker](https://apps.allwomenstalk.com/amazing-apps-to-help-your-marriage/)
-- [photography apps for beginners](https://apps.allwomenstalk.com/must-have-photography-apps-for-beginners/)
-- [download shazam app](https://apps.allwomenstalk.com/free-music-apps-to-download-immediately/)
-- [fundating](https://apps.allwomenstalk.com/fun-dating-apps-you-should-download/)
-- [apps for christmas](https://apps.allwomenstalk.com/festive-iphone-christmas-apps-that-your-holiday-season-is-incomplete-without/)
 - [green apps](https://apps.allwomenstalk.com/best-green-apps-to-help-you-do-your-bit/)
 - [new yorker app android](https://apps.allwomenstalk.com/apps-every-new-yorker-should-have/)
 - [tea lover](https://apps.allwomenstalk.com/apps-for-tea-lovers-to-download-right-now/)
 - [cnn best news apps for android](https://apps.allwomenstalk.com/news-apps-to-keep-you-informed-on-the-go/)
+- [fight tracker](https://apps.allwomenstalk.com/amazing-apps-to-help-your-marriage/)
+- [download shazam app](https://apps.allwomenstalk.com/free-music-apps-to-download-immediately/)
+- [photography apps for beginners](https://apps.allwomenstalk.com/must-have-photography-apps-for-beginners/)
 - [apps every girl should have android](https://apps.allwomenstalk.com/amazing-apps-every-girl-needs-to-have/)
+- [apps for christmas](https://apps.allwomenstalk.com/festive-iphone-christmas-apps-that-your-holiday-season-is-incomplete-without/)
+- [fundating](https://apps.allwomenstalk.com/fun-dating-apps-you-should-download/)
 - [7 Useful Apps I Use Every Day ...](https://lifestyle.allwomenstalk.com/useful-apps-i-use-every-day/)
 - [7 Useful Apps to Help You Sleep ...](https://health.allwomenstalk.com/useful-apps-to-help-you-sleep/)
 

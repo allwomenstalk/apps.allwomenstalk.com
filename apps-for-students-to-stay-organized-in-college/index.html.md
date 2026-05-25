@@ -109,16 +109,16 @@ It’s hard to pick the very best apps for students because you’re all individ
 
 ## Related Posts
 
-- [personal essay for college tips](https://lifestyle.allwomenstalk.com/tips-for-writing-a-personal-essay-for-college-admissions/)
-- [skills that you learn in college](https://lifestyle.allwomenstalk.com/life-lessons-you-learn-in-college/)
 - [dealing with homesickness in college](https://lifestyle.allwomenstalk.com/ways-to-cope-with-college-life-when-you-get-homesick/)
-- [cant find a job after graduation](https://money.allwomenstalk.com/things-to-do-if-you-cant-find-a-job-after-college/)
-- [why school is not important](https://parenting.allwomenstalk.com/important-things-students-are-not-taught-in-high-school/)
 - [types of campus](https://lifestyle.allwomenstalk.com/types-of-students-youll-find-around-your-college-campus/)
+- [community college before university](https://lifestyle.allwomenstalk.com/important-reasons-to-go-to-community-college-before-a-university/)
+- [cant find a job after graduation](https://money.allwomenstalk.com/things-to-do-if-you-cant-find-a-job-after-college/)
+- [personal essay for college tips](https://lifestyle.allwomenstalk.com/tips-for-writing-a-personal-essay-for-college-admissions/)
+- [advice for high schoolers](https://lifestyle.allwomenstalk.com/most-useful-tips-for-high-school-newcomers/)
+- [skills that you learn in college](https://lifestyle.allwomenstalk.com/life-lessons-you-learn-in-college/)
 - [does study cause stress](https://lifestyle.allwomenstalk.com/main-causes-of-stress-in-college-students/)
 - [how to start at a new school](https://lifestyle.allwomenstalk.com/tips-for-starting-over-at-a-new-school/)
-- [community college before university](https://lifestyle.allwomenstalk.com/important-reasons-to-go-to-community-college-before-a-university/)
-- [advice for high schoolers](https://lifestyle.allwomenstalk.com/most-useful-tips-for-high-school-newcomers/)
+- [why school is not important](https://parenting.allwomenstalk.com/important-things-students-are-not-taught-in-high-school/)
 - [10 Ways to Achieve a Productive and Organized Home...](https://allwomenstalk.com/ways-to-achieve-a-productive-and-organized-home-office/)
 - [7 Ways to Stay Organized for College ...](https://allwomenstalk.com/7-ways-to-stay-organized-for-college/)
 

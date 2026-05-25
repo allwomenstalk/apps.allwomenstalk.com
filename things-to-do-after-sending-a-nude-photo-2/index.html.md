@@ -38,16 +38,16 @@ And if you just happened to send a nudie picture out to someone you like…trust
 
 ## Related Posts
 
-- [why you shouldnt take relationship advice](https://love.allwomenstalk.com/bad-relationship-advice-you-shouldnt-listen-to/)
 - [bad twilight tattoo](https://lifestyle.allwomenstalk.com/the-worst-places-for-tattoos-according-to-tattoo-artists/)
-- [10 Things Not to Say during Sex ...](https://love.allwomenstalk.com/things-not-to-say-during-sex/)
-- [match.com dating profile examples](https://love.allwomenstalk.com/scientists-found-the-biggest-turn-offs-in-your-online-dating-profile/)
-- [how to say no to someone asking for a favor](https://inspiration.allwomenstalk.com/times-you-should-absolutely-say-no-when-someone-asks-you-for-a-favor/)
-- [am i being creepy to my crush](https://love.allwomenstalk.com/creepy-things-not-to-do-when-you-have-a-crush/)
-- [what not to post on social media](https://apps.allwomenstalk.com/what-you-should-and-shouldnt-post-on-social-media/)
-- [you do bridesmaids gif](https://wedding.allwomenstalk.com/things-that-annoy-bridesmaids/)
 - [things not to say to someone with anxiety](https://lifestyle.allwomenstalk.com/things-to-not-say-to-someone-who-has-anxiety/)
+- [what not to post on social media](https://apps.allwomenstalk.com/what-you-should-and-shouldnt-post-on-social-media/)
+- [match.com dating profile examples](https://love.allwomenstalk.com/scientists-found-the-biggest-turn-offs-in-your-online-dating-profile/)
 - [dont drink and text](https://lifestyle.allwomenstalk.com/people-you-should-never-drunk-text/)
+- [am i being creepy to my crush](https://love.allwomenstalk.com/creepy-things-not-to-do-when-you-have-a-crush/)
+- [why you shouldnt take relationship advice](https://love.allwomenstalk.com/bad-relationship-advice-you-shouldnt-listen-to/)
+- [how to say no to someone asking for a favor](https://inspiration.allwomenstalk.com/times-you-should-absolutely-say-no-when-someone-asks-you-for-a-favor/)
+- [you do bridesmaids gif](https://wedding.allwomenstalk.com/things-that-annoy-bridesmaids/)
+- [10 Things Not to Say during Sex ...](https://love.allwomenstalk.com/things-not-to-say-during-sex/)
 - [7 dos  Donts on Emailing Online Dating Matches ...](https://love.allwomenstalk.com/dos-donts-on-emailing-online-dating-matches/)
 - [Top 10 Rules of Sexting ...](https://allwomenstalk.com/top-10-rules-of-sexting/)
 

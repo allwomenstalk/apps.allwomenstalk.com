@@ -42,16 +42,16 @@ I am pretty sure most of you have the smiling ghost icon on the front screen of 
 
 ## Related Posts
 
-- [selfie kylie jenner](https://celebs.allwomenstalk.com/selfie-nation-kylie-jenners-most-liked-selfies-on-instagram/)
-- [celebrity piercing](https://celebs.allwomenstalk.com/daily-wow-vintage-celeb-photos-updated-with-realistic-color/)
 - [national geographic image collection](https://travel.allwomenstalk.com/stunning-and-fascinating-national-geographic-portraits/)
-- [shay mitchell street style](https://celebs.allwomenstalk.com/ootd-posts-from-shay-mitchell-thatll-inspire-you/)
-- [picture of ellen degeneres](https://celebs.allwomenstalk.com/take-a-look-at-some-of-ellen-degeneres-most-liked-photos/)
-- [what is bethany mota doing now](https://lifestyle.allwomenstalk.com/cute-moments-from-bethany-motas-insta/)
-- [chimpanzee cute](https://funny.allwomenstalk.com/pictures-of-chimps-to-brighten-your-day/)
 - [animal photo bombs](https://funny.allwomenstalk.com/proof-that-animals-are-photobomber-masters/)
-- [brazilian girls twitter](https://celebs.allwomenstalk.com/brazilian-soccer-players-to-follow-on-twitter/)
+- [celebrity piercing](https://celebs.allwomenstalk.com/daily-wow-vintage-celeb-photos-updated-with-realistic-color/)
 - [step up zendaya](https://celebs.allwomenstalk.com/step-up-your-selfie-game-with-inspiration-from-zendaya/)
+- [picture of ellen degeneres](https://celebs.allwomenstalk.com/take-a-look-at-some-of-ellen-degeneres-most-liked-photos/)
+- [selfie kylie jenner](https://celebs.allwomenstalk.com/selfie-nation-kylie-jenners-most-liked-selfies-on-instagram/)
+- [brazilian girls twitter](https://celebs.allwomenstalk.com/brazilian-soccer-players-to-follow-on-twitter/)
+- [chimpanzee cute](https://funny.allwomenstalk.com/pictures-of-chimps-to-brighten-your-day/)
+- [what is bethany mota doing now](https://lifestyle.allwomenstalk.com/cute-moments-from-bethany-motas-insta/)
+- [shay mitchell street style](https://celebs.allwomenstalk.com/ootd-posts-from-shay-mitchell-thatll-inspire-you/)
 - [7 Tips for Ditching Social Media and Getting Close...](https://lifestyle.allwomenstalk.com/tips-for-ditching-social-media-and-getting-closer/)
 - [7 Things Every Couple Needs to Know about Relation...](https://love.allwomenstalk.com/things-every-couple-needs-to-know-about-relationships/)
 

@@ -73,16 +73,16 @@ Do you use your phone to de-stress? Which are your favorite apps to relax with?
 
 ## Related Posts
 
-- [How to Feel like a Complete Badass when Youre Losi...](https://inspiration.allwomenstalk.com/how-to-feel-like-a-complete-badass/)
-- [7 heavenly breaths](https://fitness.allwomenstalk.com/exercises-meant-for-reducing-your-stress/)
-- [i sleep all day on my days off](https://lifestyle.allwomenstalk.com/soothing-ways-to-spend-your-day-off/)
-- [how to blow off steam when angry](https://inspiration.allwomenstalk.com/getting-wound-up-how-to-let-off-steam-without-blowing-your-top/)
-- [best ways to distract yourself](https://lifestyle.allwomenstalk.com/ways-to-distract-yourself-from-your-boring-reality/)
-- [i want to rant about something](https://inspiration.allwomenstalk.com/no-one-to-rant-to-get-out-your-emotions-by-doing-this-instead/)
 - [overworked mother](https://parenting.allwomenstalk.com/tips-for-overwhelmed-and-overworked-mothers/)
-- [zara barrie divorce](https://inspiration.allwomenstalk.com/how-can-you-improve-your-mental-health/)
+- [How to Feel like a Complete Badass when Youre Losi...](https://inspiration.allwomenstalk.com/how-to-feel-like-a-complete-badass/)
 - [tough day](https://inspiration.allwomenstalk.com/how-to-get-through-a-tough-week/)
+- [7 heavenly breaths](https://fitness.allwomenstalk.com/exercises-meant-for-reducing-your-stress/)
 - [how to chill out](https://lifestyle.allwomenstalk.com/easy-ways-to-chill-out-if-you-have-no-free-time/)
+- [best ways to distract yourself](https://lifestyle.allwomenstalk.com/ways-to-distract-yourself-from-your-boring-reality/)
+- [i sleep all day on my days off](https://lifestyle.allwomenstalk.com/soothing-ways-to-spend-your-day-off/)
+- [zara barrie divorce](https://inspiration.allwomenstalk.com/how-can-you-improve-your-mental-health/)
+- [i want to rant about something](https://inspiration.allwomenstalk.com/no-one-to-rant-to-get-out-your-emotions-by-doing-this-instead/)
+- [how to blow off steam when angry](https://inspiration.allwomenstalk.com/getting-wound-up-how-to-let-off-steam-without-blowing-your-top/)
 - [7 Ways to Have a Stress Free Week ...](https://allwomenstalk.com/7-ways-to-have-a-stress-free-week/)
 - [7 Foods to Combat Stress ...](https://allwomenstalk.com/7-foods-to-combat-stress/)
 

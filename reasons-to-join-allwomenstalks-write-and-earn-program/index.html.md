@@ -50,16 +50,16 @@ The Allwomenstalk team really look forward to hearing from you.
 
 ## Related Posts
 
-- [why traveling is good for your health](https://travel.allwomenstalk.com/reasons-travel-is-good-for-your-health/)
-- [reasons for becoming a parent](https://parenting.allwomenstalk.com/reasons-being-a-parent-is-awesome/)
-- [iridiologist](https://health.allwomenstalk.com/reasons-to-visit-an-iridologist/)
-- [cooking vacation in italy](https://travel.allwomenstalk.com/reasons-to-take-a-culinary-holiday-to-italy/)
-- [why do you want to become a mentor](https://lifestyle.allwomenstalk.com/why-you-should-become-a-mentor/)
-- [muses app review](https://apps.allwomenstalk.com/reasons-to-use-the-muses-app-to-grow-your-online-audience/)
-- [is roller derby a womens sport](https://lifestyle.allwomenstalk.com/reasons-to-do-roller-derby/)
 - [why regifting is good](https://lifestyle.allwomenstalk.com/benefits-of-regifting/)
+- [why do you want to become a mentor](https://lifestyle.allwomenstalk.com/why-you-should-become-a-mentor/)
+- [cooking vacation in italy](https://travel.allwomenstalk.com/reasons-to-take-a-culinary-holiday-to-italy/)
 - [italian lifestyle](https://travel.allwomenstalk.com/reasons-to-love-the-italian-lifestyle/)
+- [reasons for becoming a parent](https://parenting.allwomenstalk.com/reasons-being-a-parent-is-awesome/)
+- [why traveling is good for your health](https://travel.allwomenstalk.com/reasons-travel-is-good-for-your-health/)
+- [muses app review](https://apps.allwomenstalk.com/reasons-to-use-the-muses-app-to-grow-your-online-audience/)
 - [reasons why you are amazing](https://inspiration.allwomenstalk.com/reasons-you-should-keep-a-journal/)
+- [iridiologist](https://health.allwomenstalk.com/reasons-to-visit-an-iridologist/)
+- [is roller derby a womens sport](https://lifestyle.allwomenstalk.com/reasons-to-do-roller-derby/)
 - [These Choices WIll Make You a Role Model to Women ...](https://inspiration.allwomenstalk.com/ways-to-be-a-good-role-model/)
 - [Make the Most of Your Creative Writing Course to B...](https://books.allwomenstalk.com/ways-to-make-the-most-of-your-creative-writing-course/)
 

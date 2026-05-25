@@ -88,16 +88,16 @@ Resource
 
 ## Related Posts
 
-- [shopping app like wish](https://apps.allwomenstalk.com/easily-enable-your-shopping-addiction-with-these-fab-apps/)
-- [fitstar personal trainer](https://apps.allwomenstalk.com/apps-that-turn-your-phone-into-a-personal-trainer/)
-- [apps for scholarships](https://apps.allwomenstalk.com/the-app-that-makes-it-easier-to-apply-for-college-scholarships/)
-- [addictive games](https://apps.allwomenstalk.com/super-addictive-games-to-play-on-your-smartphone/)
-- [can u play music on kick](https://apps.allwomenstalk.com/you-dont-need-to-be-online-for-these-sweet-music-apps/)
 - [apps like zulily](https://apps.allwomenstalk.com/apps-every-shopping-addict-out-there-needs/)
+- [addictive games](https://apps.allwomenstalk.com/super-addictive-games-to-play-on-your-smartphone/)
+- [journal online diary](https://lifestyle.allwomenstalk.com/websites-you-can-use-to-keep-a-diary/)
 - [organize your life app](https://apps.allwomenstalk.com/amazing-life-organizing-apps-that-will-give-you-full-control-of-your-life/)
 - [free relationship advice app](https://apps.allwomenstalk.com/these-apps-might-just-save-your-relationship/)
+- [fitstar personal trainer](https://apps.allwomenstalk.com/apps-that-turn-your-phone-into-a-personal-trainer/)
+- [apps for scholarships](https://apps.allwomenstalk.com/the-app-that-makes-it-easier-to-apply-for-college-scholarships/)
+- [can u play music on kick](https://apps.allwomenstalk.com/you-dont-need-to-be-online-for-these-sweet-music-apps/)
+- [shopping app like wish](https://apps.allwomenstalk.com/easily-enable-your-shopping-addiction-with-these-fab-apps/)
 - [meet new female friends](https://apps.allwomenstalk.com/the-tinder-app-for-finding-new-female-friends/)
-- [journal online diary](https://lifestyle.allwomenstalk.com/websites-you-can-use-to-keep-a-diary/)
 - [10 Most Addictive Online Games ...](https://allwomenstalk.com/10-most-addictive-online-games/)
 - [8 Awesome IPhone Games ...](https://allwomenstalk.com/8-awesome-iphone-games/)
 

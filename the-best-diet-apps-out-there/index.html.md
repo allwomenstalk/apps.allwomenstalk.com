@@ -70,16 +70,16 @@ We always have our phones on us, so we might as well use them to help make ourse
 
 ## Related Posts
 
-- [makeover apps](https://apps.allwomenstalk.com/try-before-you-buy-with-these-best-makeover-apps/)
-- [useful apps for adults](https://gadgets.allwomenstalk.com/apps-thatll-help-you-feel-more-like-an-adult/)
-- [app to track money owed](https://apps.allwomenstalk.com/the-best-apps-to-track-your-money/)
-- [new years resolutions app](https://apps.allwomenstalk.com/apps-to-help-you-keep-your-new-years-resolutions/)
 - [what are good apps to find friends](https://apps.allwomenstalk.com/apps-for-making-friends/)
-- [best brain training apps](https://apps.allwomenstalk.com/the-best-apps-to-train-your-brain/)
-- [educated app](https://apps.allwomenstalk.com/get-educated-with-these-ipad-apps/)
+- [makeover apps](https://apps.allwomenstalk.com/try-before-you-buy-with-these-best-makeover-apps/)
 - [apps to help you be more articulate](https://apps.allwomenstalk.com/increase-your-vocabulary-with-these-apps/)
-- [best black friday deals apps](https://apps.allwomenstalk.com/apps-to-help-you-score-deals-on-black-friday/)
+- [educated app](https://apps.allwomenstalk.com/get-educated-with-these-ipad-apps/)
 - [apps to play when bored in class](https://apps.allwomenstalk.com/the-best-apps-to-waste-time-before-class-starts/)
+- [app to track money owed](https://apps.allwomenstalk.com/the-best-apps-to-track-your-money/)
+- [useful apps for adults](https://gadgets.allwomenstalk.com/apps-thatll-help-you-feel-more-like-an-adult/)
+- [new years resolutions app](https://apps.allwomenstalk.com/apps-to-help-you-keep-your-new-years-resolutions/)
+- [best brain training apps](https://apps.allwomenstalk.com/the-best-apps-to-train-your-brain/)
+- [best black friday deals apps](https://apps.allwomenstalk.com/apps-to-help-you-score-deals-on-black-friday/)
 - [9 Fantastic Diet Apps Youll Love ...](https://diet.allwomenstalk.com/fantastic-diet-apps-youll-love/)
 - [7 Calorie-Counting Apps ...](https://diet.allwomenstalk.com/calorie-counting-apps/)
 

@@ -42,16 +42,16 @@ It's unbelievable how easy the Internet has made shopping. Have you ever tried g
 
 ## Related Posts
 
+- [food trucks in nyc](https://food.allwomenstalk.com/food-trucks-in-nyc-everyone-is-talking-about/)
 - [moon boots workout](https://fitness.allwomenstalk.com/the-wackiest-exercise-products-ever-invented/)
 - [girl gadgets](https://food.allwomenstalk.com/unique-kitchen-gadgets-every-girl-has-got-to-have/)
-- [food trucks in nyc](https://food.allwomenstalk.com/food-trucks-in-nyc-everyone-is-talking-about/)
 - [cyborg technologies](https://lifestyle.allwomenstalk.com/cyborg-technologies-that-will-turn-you-into-robocop/)
-- [best online subscriptions](https://lifestyle.allwomenstalk.com/subscriptions-that-are-well-worth-the-price/)
 - [websites like etsy](https://lifestyle.allwomenstalk.com/if-you-love-etsy-then-youll-love-these-sites/)
-- [things that make life easier](https://lifestyle.allwomenstalk.com/gadgets-thatll-make-a-girls-life-easier/)
+- [best online subscriptions](https://lifestyle.allwomenstalk.com/subscriptions-that-are-well-worth-the-price/)
+- [zen pencils invictus](https://funny.allwomenstalk.com/what-are-zen-pencils-im-glad-you-asked/)
 - [games you can play with paper and pen](https://lifestyle.allwomenstalk.com/paper-and-pen-games-that-are-a-blast-from-the-past/)
 - [21 pineapples](https://lifestyle.allwomenstalk.com/pineapple-themed-things-you-need-in-your-life/)
-- [zen pencils invictus](https://funny.allwomenstalk.com/what-are-zen-pencils-im-glad-you-asked/)
+- [things that make life easier](https://lifestyle.allwomenstalk.com/gadgets-thatll-make-a-girls-life-easier/)
 - [7 Items You Shouldnt Buy at the Grocery Store ...](https://allwomenstalk.com/7-items-you-shouldnt-buy-at-the-grocery-store/)
 - [7 Grocery Shopping Mistakes ...](https://allwomenstalk.com/grocery-shopping-mistakes/)
 

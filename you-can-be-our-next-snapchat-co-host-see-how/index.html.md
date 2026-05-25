@@ -20,16 +20,16 @@ Could you be the next co-host for the allwomenstalk snapchat show?!
 
 ## Related Posts
 
-- [crying watching tv](https://movies.allwomenstalk.com/did-you-know-crying-during-movies-means-youre-a-stronger-person/)
-- [bad party](https://lifestyle.allwomenstalk.com/are-you-a-bad-party-host/)
-- [condom etiquette](https://love.allwomenstalk.com/condom-etiquette-101/)
 - [release your inner goddess](https://inspiration.allwomenstalk.com/ways-to-release-your-inner-goddess/)
-- [site:lifestyle.allwomenstalk.com](https://lifestyle.allwomenstalk.com/are-modern-men-emasculated/)
-- [zara jeggings super elastic](https://fashion.allwomenstalk.com/which-jeans-are-best-for-me/)
-- [how does a cheater feel](https://love.allwomenstalk.com/how-cheaters-feel-after-being-found-out/)
-- [should you air out your house](https://beauty.allwomenstalk.com/what-makes-a-woman-beautiful/)
-- [sylvia plath braid](https://lifestyle.allwomenstalk.com/ways-to-be-a-feminist/)
 - [how to be a real life superhero](https://inspiration.allwomenstalk.com/who-is-your-real-life-superhero/)
+- [how does a cheater feel](https://love.allwomenstalk.com/how-cheaters-feel-after-being-found-out/)
+- [condom etiquette](https://love.allwomenstalk.com/condom-etiquette-101/)
+- [crying watching tv](https://movies.allwomenstalk.com/did-you-know-crying-during-movies-means-youre-a-stronger-person/)
+- [site:lifestyle.allwomenstalk.com](https://lifestyle.allwomenstalk.com/are-modern-men-emasculated/)
+- [bad party](https://lifestyle.allwomenstalk.com/are-you-a-bad-party-host/)
+- [sylvia plath braid](https://lifestyle.allwomenstalk.com/ways-to-be-a-feminist/)
+- [should you air out your house](https://beauty.allwomenstalk.com/what-makes-a-woman-beautiful/)
+- [zara jeggings super elastic](https://fashion.allwomenstalk.com/which-jeans-are-best-for-me/)
 - [Got Question We Have Answers](https://allwomenstalk.com/got-question-we-have-answers/)
 - [We Want You if You Can Answer the following Questi...](https://allwomenstalk.com/we-want-you-if-you-can-answer-the-following-questions-correctly/)
 

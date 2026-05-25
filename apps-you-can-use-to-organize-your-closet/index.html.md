@@ -49,10 +49,10 @@ What is your favorite fashion app? Let me know what you absolutely love and need
 
 ## Related Posts
 
+- [can you keep makeup in the bathroom](https://makeup.allwomenstalk.com/makeup-organization-tips-to-keep-your-bathroom-clean/)
 - [how to deodorize sneakers](https://shoes.allwomenstalk.com/simple-ways-to-de-odorize-smelly-shoes/)
 - [locking storage for dorm room](https://diy.allwomenstalk.com/super-dorm-room-space-savers-and-organizing-tricks/)
 - [forget the risk and take the fall](https://lifestyle.allwomenstalk.com/forget-spring-cleaning-things-that-should-be-cleaned-in-the-fall/)
-- [can you keep makeup in the bathroom](https://makeup.allwomenstalk.com/makeup-organization-tips-to-keep-your-bathroom-clean/)
 - [should i wash towels on heavy duty](https://lifestyle.allwomenstalk.com/how-to-get-your-towels-completely-clean/)
 - [make up stash](https://makeup.allwomenstalk.com/how-to-spring-clean-your-make-up-stash/)
 - [how to treat tarnished gold](https://jewelry.allwomenstalk.com/hacks-to-clean-your-jewelry/)

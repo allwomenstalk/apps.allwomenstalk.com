@@ -36,15 +36,15 @@ Everyone is connected to somebody on social media. When you post something negat
 
 ## Related Posts
 
-- [10 Things Not to Say during Sex ...](https://love.allwomenstalk.com/things-not-to-say-during-sex/)
-- [am i being creepy to my crush](https://love.allwomenstalk.com/creepy-things-not-to-do-when-you-have-a-crush/)
-- [how to say no to someone asking for a favor](https://inspiration.allwomenstalk.com/times-you-should-absolutely-say-no-when-someone-asks-you-for-a-favor/)
-- [dont drink and text](https://lifestyle.allwomenstalk.com/people-you-should-never-drunk-text/)
-- [to take advice](https://inspiration.allwomenstalk.com/types-of-people-you-shouldnt-take-advice-from/)
-- [match.com dating profile examples](https://love.allwomenstalk.com/scientists-found-the-biggest-turn-offs-in-your-online-dating-profile/)
-- [why you shouldnt take relationship advice](https://love.allwomenstalk.com/bad-relationship-advice-you-shouldnt-listen-to/)
-- [What Not to Party: Showing up Early](https://allwomenstalk.com/what-not-to-party-showing-up-early/)
 - [you do bridesmaids gif](https://wedding.allwomenstalk.com/things-that-annoy-bridesmaids/)
+- [What Not to Party: Showing up Early](https://allwomenstalk.com/what-not-to-party-showing-up-early/)
+- [dont drink and text](https://lifestyle.allwomenstalk.com/people-you-should-never-drunk-text/)
+- [why you shouldnt take relationship advice](https://love.allwomenstalk.com/bad-relationship-advice-you-shouldnt-listen-to/)
+- [how to say no to someone asking for a favor](https://inspiration.allwomenstalk.com/times-you-should-absolutely-say-no-when-someone-asks-you-for-a-favor/)
+- [am i being creepy to my crush](https://love.allwomenstalk.com/creepy-things-not-to-do-when-you-have-a-crush/)
+- [match.com dating profile examples](https://love.allwomenstalk.com/scientists-found-the-biggest-turn-offs-in-your-online-dating-profile/)
+- [to take advice](https://inspiration.allwomenstalk.com/types-of-people-you-shouldnt-take-advice-from/)
+- [10 Things Not to Say during Sex ...](https://love.allwomenstalk.com/things-not-to-say-during-sex/)
 - [bad twilight tattoo](https://lifestyle.allwomenstalk.com/the-worst-places-for-tattoos-according-to-tattoo-artists/)
 - [7 Tips on Using Facebook for Your Business ...](https://lifestyle.allwomenstalk.com/tips-on-using-facebook-for-your-business/)
 - [7 Things You Shouldnt do on Facebook ...](https://allwomenstalk.com/7-things-you-shouldnt-do-on-facebook/)

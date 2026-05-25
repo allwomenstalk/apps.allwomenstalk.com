@@ -70,16 +70,16 @@ This is just a flavor of the type of apps available. The selection is also gener
 
 ## Related Posts
 
-- [snapchat tips](https://apps.allwomenstalk.com/ways-to-up-your-snapchat-game/)
-- [funny daily affirmations app](https://apps.allwomenstalk.com/daily-affirmation-apps-for-those-who-need-additional-daily-inspo/)
-- [icebreaker questions for relationships](https://apps.allwomenstalk.com/apps-for-couples-who-want-to-have-a-stronger-bond/)
-- [job search apps](https://apps.allwomenstalk.com/best-apps-for-girls-looking-for-a-job/)
-- [all fit app](https://apps.allwomenstalk.com/the-apps-every-fit-girl-needs-in/)
-- [myfooddiary app](https://apps.allwomenstalk.com/food-journal-apps-for-those-who-are-trying-to-lose-weight-right-now/)
-- [viggle apps](https://apps.allwomenstalk.com/try-these-apps-if-you-want-to-earn-some-cash/)
 - [aunt flo app](https://apps.allwomenstalk.com/health-apps-to-help-you-track-shark-week-therewillbeblood/)
-- [apps youfit](https://apps.allwomenstalk.com/these-health-apps-will-help-you-get-fit-for-summer/)
+- [icebreaker questions for relationships](https://apps.allwomenstalk.com/apps-for-couples-who-want-to-have-a-stronger-bond/)
+- [funny daily affirmations app](https://apps.allwomenstalk.com/daily-affirmation-apps-for-those-who-need-additional-daily-inspo/)
+- [myfooddiary app](https://apps.allwomenstalk.com/food-journal-apps-for-those-who-are-trying-to-lose-weight-right-now/)
+- [job search apps](https://apps.allwomenstalk.com/best-apps-for-girls-looking-for-a-job/)
 - [college technology survival kit pdf](https://apps.allwomenstalk.com/the-apps-that-make-up-a-students-survival-kit/)
+- [apps youfit](https://apps.allwomenstalk.com/these-health-apps-will-help-you-get-fit-for-summer/)
+- [all fit app](https://apps.allwomenstalk.com/the-apps-every-fit-girl-needs-in/)
+- [viggle apps](https://apps.allwomenstalk.com/try-these-apps-if-you-want-to-earn-some-cash/)
+- [snapchat tips](https://apps.allwomenstalk.com/ways-to-up-your-snapchat-game/)
 - [7 Fashion Apps We Cant Live without ...](https://lifestyle.allwomenstalk.com/fashion-apps-we-cant-live-without/)
 - [7 Best Music Apps to Download ...](https://lifestyle.allwomenstalk.com/best-music-apps-to-download/)
 

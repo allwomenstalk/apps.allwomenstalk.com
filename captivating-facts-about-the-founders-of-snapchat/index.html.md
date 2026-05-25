@@ -44,16 +44,16 @@ Talent and innovation really take you far in life, just take a look at these two
 
 ## Related Posts
 
-- [jennifer lawrence age](https://celebs.allwomenstalk.com/fun-facts-about-jennifer-lawrence/)
-- [why do giraffes sleep standing up](https://lifestyle.allwomenstalk.com/interesting-and-fun-facts-about-giraffes/)
+- [banana industry in belize](https://food.allwomenstalk.com/facts-about-the-banana-industry-that-may-surprise-you/)
 - [what are fair trade products](https://lifestyle.allwomenstalk.com/things-you-need-to-know-about-fairtrade-products/)
 - [funny facts about money](https://money.allwomenstalk.com/fascinating-facts-from-the-history-of-money/)
-- [banana industry in belize](https://food.allwomenstalk.com/facts-about-the-banana-industry-that-may-surprise-you/)
-- [costco makeup](https://money.allwomenstalk.com/less-known-facts-about-costco-you-should-know-about/)
-- [new girl fun facts](https://celebs.allwomenstalk.com/fun-facts-about-zooey-deschanel-that-will-make-you-love-her-even-more/)
-- [interesting things about spiders](https://lifestyle.allwomenstalk.com/interesting-things-about-spiders-you-probably-dont-want-to-know/)
-- [7 Shocking Truths about the Media That Will Blow Y...](https://lifestyle.allwomenstalk.com/shocking-truths-about-the-media-that-will-blow-your-mind/)
+- [jennifer lawrence age](https://celebs.allwomenstalk.com/fun-facts-about-jennifer-lawrence/)
 - [portia de rossi loreal](https://celebs.allwomenstalk.com/fun-facts-about-portia-de-rossi/)
+- [why do giraffes sleep standing up](https://lifestyle.allwomenstalk.com/interesting-and-fun-facts-about-giraffes/)
+- [interesting things about spiders](https://lifestyle.allwomenstalk.com/interesting-things-about-spiders-you-probably-dont-want-to-know/)
+- [costco makeup](https://money.allwomenstalk.com/less-known-facts-about-costco-you-should-know-about/)
+- [7 Shocking Truths about the Media That Will Blow Y...](https://lifestyle.allwomenstalk.com/shocking-truths-about-the-media-that-will-blow-your-mind/)
+- [new girl fun facts](https://celebs.allwomenstalk.com/fun-facts-about-zooey-deschanel-that-will-make-you-love-her-even-more/)
 - [5 Facts on Scene Kids ...](https://twilight.allwomenstalk.com/5-facts-on-scene-kids/)
 - [5 Facts on Scooby Doo ...](https://twilight.allwomenstalk.com/5-facts-on-scooby-doo/)
 

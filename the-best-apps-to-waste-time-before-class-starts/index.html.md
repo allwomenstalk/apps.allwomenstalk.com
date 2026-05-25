@@ -62,15 +62,15 @@ There's no reason to be bored in this day and age. When you're waiting for your 
 
 ## Related Posts
 
-- [best brain training apps](https://apps.allwomenstalk.com/the-best-apps-to-train-your-brain/)
-- [what are good apps to find friends](https://apps.allwomenstalk.com/apps-for-making-friends/)
 - [app to track money owed](https://apps.allwomenstalk.com/the-best-apps-to-track-your-money/)
-- [makeover apps](https://apps.allwomenstalk.com/try-before-you-buy-with-these-best-makeover-apps/)
-- [new years resolutions app](https://apps.allwomenstalk.com/apps-to-help-you-keep-your-new-years-resolutions/)
-- [best black friday deals apps](https://apps.allwomenstalk.com/apps-to-help-you-score-deals-on-black-friday/)
-- [apps to help get pregnant](https://apps.allwomenstalk.com/want-to-get-pregnant-these-apps-will-help/)
 - [apps to help you be more articulate](https://apps.allwomenstalk.com/increase-your-vocabulary-with-these-apps/)
 - [useful apps for adults](https://gadgets.allwomenstalk.com/apps-thatll-help-you-feel-more-like-an-adult/)
+- [apps to help get pregnant](https://apps.allwomenstalk.com/want-to-get-pregnant-these-apps-will-help/)
+- [new years resolutions app](https://apps.allwomenstalk.com/apps-to-help-you-keep-your-new-years-resolutions/)
+- [makeover apps](https://apps.allwomenstalk.com/try-before-you-buy-with-these-best-makeover-apps/)
+- [best brain training apps](https://apps.allwomenstalk.com/the-best-apps-to-train-your-brain/)
+- [best black friday deals apps](https://apps.allwomenstalk.com/apps-to-help-you-score-deals-on-black-friday/)
+- [what are good apps to find friends](https://apps.allwomenstalk.com/apps-for-making-friends/)
 - [educated app](https://apps.allwomenstalk.com/get-educated-with-these-ipad-apps/)
 - [5 Things to Help You Pass the Time...](https://baking.allwomenstalk.com/5-things-to-help-you-pass-the-time/)
 - [7 Best Websites to Procrastinate with ...](https://lifestyle.allwomenstalk.com/best-websites-to-procrastinate-with/)

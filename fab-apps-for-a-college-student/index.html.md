@@ -70,16 +70,16 @@ Now that you have all of the must-have apps for college, what are some of the ot
 
 ## Related Posts
 
-- [tea lover](https://apps.allwomenstalk.com/apps-for-tea-lovers-to-download-right-now/)
-- [7 Great Phone Apps if You Love Outdoor Pursuits .....](https://apps.allwomenstalk.com/great-phone-apps-if-you-love-outdoor-pursuits/)
-- [apps for christmas](https://apps.allwomenstalk.com/festive-iphone-christmas-apps-that-your-holiday-season-is-incomplete-without/)
 - [green apps](https://apps.allwomenstalk.com/best-green-apps-to-help-you-do-your-bit/)
-- [download shazam app](https://apps.allwomenstalk.com/free-music-apps-to-download-immediately/)
+- [7 Great Phone Apps if You Love Outdoor Pursuits .....](https://apps.allwomenstalk.com/great-phone-apps-if-you-love-outdoor-pursuits/)
 - [app.snowsport](https://apps.allwomenstalk.com/simply-must-have-apps-for-snow-sport-freaks/)
-- [cnn best news apps for android](https://apps.allwomenstalk.com/news-apps-to-keep-you-informed-on-the-go/)
-- [what is rita 7309 contact app waccess.org](https://apps.allwomenstalk.com/fantastic-apps-to-start-your-day-on-the-right-note/)
-- [fight tracker](https://apps.allwomenstalk.com/amazing-apps-to-help-your-marriage/)
+- [download shazam app](https://apps.allwomenstalk.com/free-music-apps-to-download-immediately/)
 - [fun drinking apps](https://apps.allwomenstalk.com/drinking-apps-for-the-holiday-season/)
+- [fight tracker](https://apps.allwomenstalk.com/amazing-apps-to-help-your-marriage/)
+- [apps for christmas](https://apps.allwomenstalk.com/festive-iphone-christmas-apps-that-your-holiday-season-is-incomplete-without/)
+- [cnn best news apps for android](https://apps.allwomenstalk.com/news-apps-to-keep-you-informed-on-the-go/)
+- [tea lover](https://apps.allwomenstalk.com/apps-for-tea-lovers-to-download-right-now/)
+- [what is rita 7309 contact app waccess.org](https://apps.allwomenstalk.com/fantastic-apps-to-start-your-day-on-the-right-note/)
 - [7 Ways to Prep for College ...](https://lifestyle.allwomenstalk.com/7-ways-to-prep-for-college/)
 - [7 Ways to Stay Organized for College ...](https://allwomenstalk.com/7-ways-to-stay-organized-for-college/)
 
