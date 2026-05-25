@@ -3,7 +3,7 @@ title: "5 Times You Should Put Your Phone Away and Focus on What Youre Doing ...
 description: "Mealtimes; Loud Headphones on Public Transport; When You Should Be Listening; Walking; Social Events; More ..."
 url: "https://apps.allwomenstalk.com/times-you-should-put-your-phone-away-and-focus-on-what-youre-doing/"
 category: "apps"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 5 Times  You Should Put Your Phone Away and Focus on What Youre Doing ...
@@ -32,16 +32,16 @@ It one of the most annoying things in the world when you ask a few friends round
 
 ## Related Posts
 
-- [paris color le stylo garde](https://inspiration.allwomenstalk.com/do-not-pass-on-these-life-changing-opportunities/)
-- [pumpkin seeds quotes](https://inspiration.allwomenstalk.com/keep-the-faith-even-the-size-of-a-pumpkin-seed/)
-- [When  Not to Talk Yourself out of It ...](https://inspiration.allwomenstalk.com/when-not-to-talk-yourself-out-of-it/)
-- [Why Its Ok You do Not Know What You Want to do  No...](https://money.allwomenstalk.com/why-its-ok-you-do-not-know-what-you-want-to-do-now-you-have-graduated/)
-- [Uncomfortable Things You Must Deal with Head on fo...](https://inspiration.allwomenstalk.com/uncomfortable-things-you-must-deal-with-head-on-for-a-comfortable-life/)
-- [The Importance of a Support System when You Have a...](https://health.allwomenstalk.com/the-importance-of-a-support-system-when-you-have-a-mental-illness/)
-- [Why Being a Geek Isnt a Bad Thing ...](https://inspiration.allwomenstalk.com/why-being-a-geek-isnt-a-bad-thing/)
-- [A Better Way to Look at Death ...](https://inspiration.allwomenstalk.com/a-better-way-to-look-at-death/)
 - [Dont Take Your Second 2 and Third 3 Chance for Gra...](https://inspiration.allwomenstalk.com/dont-take-your-second-2-and-third-3-chance-for-granted/)
+- [The Importance of a Support System when You Have a...](https://health.allwomenstalk.com/the-importance-of-a-support-system-when-you-have-a-mental-illness/)
+- [A Better Way to Look at Death ...](https://inspiration.allwomenstalk.com/a-better-way-to-look-at-death/)
 - [Exceptional Things Mentally Strong People do ...](https://inspiration.allwomenstalk.com/exceptional-things-mentally-strong-people-do/)
+- [Why Being a Geek Isnt a Bad Thing ...](https://inspiration.allwomenstalk.com/why-being-a-geek-isnt-a-bad-thing/)
+- [pumpkin seeds quotes](https://inspiration.allwomenstalk.com/keep-the-faith-even-the-size-of-a-pumpkin-seed/)
+- [Uncomfortable Things You Must Deal with Head on fo...](https://inspiration.allwomenstalk.com/uncomfortable-things-you-must-deal-with-head-on-for-a-comfortable-life/)
+- [Why Its Ok You do Not Know What You Want to do  No...](https://money.allwomenstalk.com/why-its-ok-you-do-not-know-what-you-want-to-do-now-you-have-graduated/)
+- [When  Not to Talk Yourself out of It ...](https://inspiration.allwomenstalk.com/when-not-to-talk-yourself-out-of-it/)
+- [paris color le stylo garde](https://inspiration.allwomenstalk.com/do-not-pass-on-these-life-changing-opportunities/)
 - [5 Ways to Stop Talking about Yourself ...](https://lifestyle.allwomenstalk.com/ways-to-stop-talking-about-yourself/)
 - [5 Things to Help You Pass the Time...](https://baking.allwomenstalk.com/5-things-to-help-you-pass-the-time/)
 
