@@ -3,7 +3,7 @@ title: "19 Best Facebook Apps for Wasting Time ..."
 description: "FarmVille, FarmVille 2; Words with Friends; Candy Crush Saga; Trivia Crack; Happy Dinos; More ..."
 url: "https://apps.allwomenstalk.com/best-facebook-apps-for-wasting-time/"
 category: "apps"
-last_updated: "2026-05-27"
+last_updated: "2026-05-29"
 ---
 
 # 19 Best Facebook Apps for Wasting Time ...
@@ -127,16 +127,16 @@ These are just a few of the great Facebook time-suckers out there. Just so you k
 
 ## Related Posts
 
-- [7signs app](https://apps.allwomenstalk.com/of-the-best-apps-for-last-minute-travel/)
-- [Stay Organized with These Helpful and Efficient Ap...](https://apps.allwomenstalk.com/stay-organized-with-these-helpful-and-efficient-apps/)
-- [Out with the Old: Snag a New Years Date with a New...](https://apps.allwomenstalk.com/out-with-the-old-snag-a-new-years-date-with-a-new-kind-of-app/)
-- [7 Amazing Google Services You Should Know about .....](https://apps.allwomenstalk.com/amazing-google-services-you-should-know-about/)
 - [Period Tracker Apps to Help You through the Month ...](https://apps.allwomenstalk.com/period-tracker-apps-to-help-you-through-the-month/)
-- [7 Apps That Will Help You Change Your Life This Ye...](https://apps.allwomenstalk.com/apps-that-will-help-you-change-your-life-this-year/)
-- [apps like words with friends](https://apps.allwomenstalk.com/remember-words-with-friends-here-are-newer-apps-to-play-against-your-pals/)
-- [9 Fabulicious Apps for Foodies ...](https://apps.allwomenstalk.com/fabulicious-apps-for-foodies/)
-- [interval training app](https://fitness.allwomenstalk.com/must-have-interval-training-apps/)
+- [Out with the Old: Snag a New Years Date with a New...](https://apps.allwomenstalk.com/out-with-the-old-snag-a-new-years-date-with-a-new-kind-of-app/)
 - [7 Best Apps to Get You Totally Organized ...](https://apps.allwomenstalk.com/best-apps-to-get-you-totally-organized/)
+- [7signs app](https://apps.allwomenstalk.com/of-the-best-apps-for-last-minute-travel/)
+- [apps like words with friends](https://apps.allwomenstalk.com/remember-words-with-friends-here-are-newer-apps-to-play-against-your-pals/)
+- [7 Apps That Will Help You Change Your Life This Ye...](https://apps.allwomenstalk.com/apps-that-will-help-you-change-your-life-this-year/)
+- [interval training app](https://fitness.allwomenstalk.com/must-have-interval-training-apps/)
+- [7 Amazing Google Services You Should Know about .....](https://apps.allwomenstalk.com/amazing-google-services-you-should-know-about/)
+- [Stay Organized with These Helpful and Efficient Ap...](https://apps.allwomenstalk.com/stay-organized-with-these-helpful-and-efficient-apps/)
+- [9 Fabulicious Apps for Foodies ...](https://apps.allwomenstalk.com/fabulicious-apps-for-foodies/)
 - [7 Best Travel Apps for the IPhone ...](https://travel.allwomenstalk.com/7-best-travel-apps-for-the-iphone/)
 - [7 Best and Interestingly Amusing Free Travel Apps ...](https://gadgets.allwomenstalk.com/best-and-interestingly-amusing-free-travel-apps/)
 
