@@ -3,7 +3,7 @@ title: "9 Must-have Apps for Self Employed Women ..."
 description: "Freshbooks; Evernote; XE Currency; Kindle; Cam Scanner; More ..."
 url: "https://apps.allwomenstalk.com/must-have-apps-for-self-employed-women/"
 category: "apps"
-last_updated: "2026-05-29"
+last_updated: "2026-06-02"
 ---
 
 # 9 Must\-have Apps for Self Employed Women ...
