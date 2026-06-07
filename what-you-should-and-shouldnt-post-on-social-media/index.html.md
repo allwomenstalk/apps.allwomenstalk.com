@@ -1,12 +1,12 @@
 ---
-title: "What You Should and Shouldnt Post on Social Media ..."
+title: "What You Should and Shouldn't Post on Social Media ..."
 description: "Do: Think about What You Want to Say; Don't: Post Things That Are TMI (Too Much Information); Do: Post Pictures; Don't: Post Hate Speech; Do: Post Reviews; More ..."
 url: "https://apps.allwomenstalk.com/what-you-should-and-shouldnt-post-on-social-media/"
 category: "apps"
-last_updated: "2026-06-02"
+last_updated: "2026-06-07"
 ---
 
-# What You Should and Shouldnt Post on Social Media ...
+# What You Should and Shouldn't Post on Social Media ...
 
 Every girl should know **what you should and shouldn't post on social media**. Social media has opened the door for more people to say what they really think about a certain topic. People who do not talk much in public find it easier to write their most private thoughts on social media. Most platforms do not have limits on how many characters you can use. This leaves you with a world of endless possibilities about what you want to say. But, what should you say? What if you do not get on social media that often? What if your post gets lost in a sea of millions of other posts? You might have a good idea in your head that you might want to share with the world, but it might fall flat with the rest of the internet. You might have the itch to write something, but you do not know how to type it out in words. This article will give you some ideas with your posting in regards to **what you should and shouldn't post on social media**.
 
@@ -36,18 +36,18 @@ Everyone is connected to somebody on social media. When you post something negat
 
 ## Related Posts
 
+- [why you shouldn't take relationship advice](https://love.allwomenstalk.com/bad-relationship-advice-you-shouldnt-listen-to/)
+- [am i being creepy to my crush](https://love.allwomenstalk.com/creepy-things-not-to-do-when-you-have-a-crush/)
+- [don't drink and text](https://lifestyle.allwomenstalk.com/people-you-should-never-drunk-text/)
+- [match.com dating profile examples](https://love.allwomenstalk.com/scientists-found-the-biggest-turn-offs-in-your-online-dating-profile/)
+- [What Not to Party: Showing up Early](https://allwomenstalk.com/what-not-to-party-showing-up-early/)
 - [you do bridesmaids gif](https://wedding.allwomenstalk.com/things-that-annoy-bridesmaids/)
-- [bad twilight tattoo](https://lifestyle.allwomenstalk.com/the-worst-places-for-tattoos-according-to-tattoo-artists/)
 - [to take advice](https://inspiration.allwomenstalk.com/types-of-people-you-shouldnt-take-advice-from/)
 - [how to say no to someone asking for a favor](https://inspiration.allwomenstalk.com/times-you-should-absolutely-say-no-when-someone-asks-you-for-a-favor/)
-- [dont drink and text](https://lifestyle.allwomenstalk.com/people-you-should-never-drunk-text/)
-- [match.com dating profile examples](https://love.allwomenstalk.com/scientists-found-the-biggest-turn-offs-in-your-online-dating-profile/)
 - [10 Things Not to Say during Sex ...](https://love.allwomenstalk.com/things-not-to-say-during-sex/)
-- [am i being creepy to my crush](https://love.allwomenstalk.com/creepy-things-not-to-do-when-you-have-a-crush/)
-- [What Not to Party: Showing up Early](https://allwomenstalk.com/what-not-to-party-showing-up-early/)
-- [why you shouldnt take relationship advice](https://love.allwomenstalk.com/bad-relationship-advice-you-shouldnt-listen-to/)
+- [bad twilight tattoo](https://lifestyle.allwomenstalk.com/the-worst-places-for-tattoos-according-to-tattoo-artists/)
 - [7 Tips on Using Facebook for Your Business ...](https://lifestyle.allwomenstalk.com/tips-on-using-facebook-for-your-business/)
-- [7 Things You Shouldnt do on Facebook ...](https://allwomenstalk.com/7-things-you-shouldnt-do-on-facebook/)
+- [7 Things You Shouldn't do on Facebook ...](https://allwomenstalk.com/7-things-you-shouldnt-do-on-facebook/)
 
 ## Site Information
 

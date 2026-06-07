@@ -3,7 +3,7 @@ title: "5 Better Things to Post on Social Media than Politics ..."
 description: "Post a Picture of Something Beautiful like a Flower, a Person, or View; Why Not Post a Link to a Great Song?; Post a Video Clip of Your Fave Comedy Film Moment or Stand up; Why Not Share a Pic of a Gorgeous Human Being?; Recommendations; More ..."
 url: "https://apps.allwomenstalk.com/better-things-to-post-on-social-media-than-politics/"
 category: "apps"
-last_updated: "2026-06-02"
+last_updated: "2026-06-07"
 ---
 
 # 5 Better Things to Post on Social Media than Politics ...
@@ -48,10 +48,10 @@ So there let’s have a politics-free day, week or month and start posting posit
 - [5 Weird Posts to BlogStalk...](https://allwomenstalk.com/5-weird-posts-to-blogstalk/)
 - [5 Thought-Provoking Posts to BlogStalk...](https://allwomenstalk.com/5-thought-provoking-posts-to-blogstalk-2/)
 - [5 Fit Posts to BlogStalk ...](https://allwomenstalk.com/5-fit-posts-to-blogstalk/)
-- [7 Things You Shouldnt do on Facebook ...](https://allwomenstalk.com/7-things-you-shouldnt-do-on-facebook/)
+- [7 Things You Shouldn't do on Facebook ...](https://allwomenstalk.com/7-things-you-shouldnt-do-on-facebook/)
 - [5 Useful Things You Need to Know ...](https://allwomenstalk.com/5-useful-things-you-need-to-know/)
 - [7 Things NEVER to Post on Facebook ...](https://allwomenstalk.com/7-things-never-to-post-on-facebook/)
-- [5 Things I Wish People Wouldnt do on Facebook ...](https://allwomenstalk.com/5-things-i-wish-people-wouldnt-do-on-facebook/)
+- [5 Things I Wish People Wouldn't do on Facebook ...](https://allwomenstalk.com/5-things-i-wish-people-wouldnt-do-on-facebook/)
 
 ## Site Information
 
