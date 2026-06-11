@@ -3,7 +3,7 @@ title: "5 Most Badass Female Video Game Characters ..."
 description: "Elizabeth Comstock – Bioshock Infinite; Ellie – the Last of Us; Elena Fisher – Uncharted Series; Clementine – the Walking Dead; Aveline De Grandpré - Assassin’s Creed: Liberation; More ..."
 url: "https://apps.allwomenstalk.com/most-badass-female-video-game-characters/"
 category: "apps"
-last_updated: "2026-06-07"
+last_updated: "2026-06-11"
 ---
 
 # 5 Most Badass Female Video Game Characters ...
@@ -42,16 +42,16 @@ Being an assassin is already badass enough, which you’ll know if you’re a fa
 
 ## Related Posts
 
-- [important female scientists](https://celebs.allwomenstalk.com/famous-female-scientists/)
-- [role models images](https://fitness.allwomenstalk.com/female-athletes-who-should-be-your-role-models/)
-- [girl punk outfit](https://fashion.allwomenstalk.com/celebrity-punk-style-icons/)
-- [disney character female](https://movies.allwomenstalk.com/weakest-female-disney-characters/)
-- [famous female poems](https://music.allwomenstalk.com/female-artists-whose-music-is-pure-poetry/)
-- [common misconceptions about feminism](https://lifestyle.allwomenstalk.com/misconceptions-about-feminism/)
 - [girl from the office](https://movies.allwomenstalk.com/women-from-the-office-who-should-be-your-role-models/)
+- [common misconceptions about feminism](https://lifestyle.allwomenstalk.com/misconceptions-about-feminism/)
+- [role models images](https://fitness.allwomenstalk.com/female-athletes-who-should-be-your-role-models/)
+- [famous female poems](https://music.allwomenstalk.com/female-artists-whose-music-is-pure-poetry/)
 - [lucy sutcliffe and kaelyn](https://celebs.allwomenstalk.com/inspirational-lesbian-celebs/)
+- [disney character female](https://movies.allwomenstalk.com/weakest-female-disney-characters/)
 - [women comparison](https://inspiration.allwomenstalk.com/women-are-like-water/)
 - [stranger things females](https://movies.allwomenstalk.com/amazing-women-in-stranger-things/)
+- [important female scientists](https://celebs.allwomenstalk.com/famous-female-scientists/)
+- [girl punk outfit](https://fashion.allwomenstalk.com/celebrity-punk-style-icons/)
 - [5 Best Video Games with Cool Guns ...](https://twilight.allwomenstalk.com/5-best-video-games-with-cool-guns/)
 - [7 Strong and Inspiring Female Characters from Movi...](https://movies.allwomenstalk.com/7-strong-and-inspiring-female-characters-from-movies/)
 

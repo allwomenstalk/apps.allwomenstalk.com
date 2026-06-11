@@ -3,7 +3,7 @@ title: "7 Hotly Anticipated Video Games to Be Released in 2015 ..."
 description: "Resident Evil Revelations 2; Final Fantasy XV; Crackdown; Evolve; Battlefield: Hardline; More ..."
 url: "https://apps.allwomenstalk.com/hotly-anticipated-video-games-to-be-released-in/"
 category: "apps"
-last_updated: "2026-06-07"
+last_updated: "2026-06-11"
 ---
 
 # 7 Hotly Anticipated Video Games to Be Released in 2015 ...
@@ -56,16 +56,16 @@ Which game(s) can’t you wait for this year?
 
 ## Related Posts
 
-- [most famous secret societies](https://lifestyle.allwomenstalk.com/of-the-most-mysterious-secret-societies-in-the-world/)
-- [people who survived the impossible](https://inspiration.allwomenstalk.com/incredible-survival-stories-of-people-who-made-it-against-all-odds/)
-- [top 5 poets](https://books.allwomenstalk.com/of-the-best-poets-of-all-time/)
-- [coincidences in history](https://lifestyle.allwomenstalk.com/inexplicable-coincidences-throughout-history/)
 - [house hanging off cliff minecraft](https://travel.allwomenstalk.com/cliffside-towns-clinging-on-to-life/)
-- [riche le smoky and brilliant](https://inspiration.allwomenstalk.com/brilliant-controversial-adverts-that-everyone-should-see/)
+- [disasters that never happened](https://lifestyle.allwomenstalk.com/predicted-catastrophes-that-never-happened/)
+- [terence tao vs albert einstein](https://lifestyle.allwomenstalk.com/most-remarkable-intelligent-people-who-ever-lived/)
+- [most famous secret societies](https://lifestyle.allwomenstalk.com/of-the-most-mysterious-secret-societies-in-the-world/)
 - [disney world date ideas](https://love.allwomenstalk.com/disney-inspired-dates-to-go-on/)
 - [different storms](https://lifestyle.allwomenstalk.com/rare-weather-phenomena-that-will-leave-you-speechless/)
-- [terence tao vs albert einstein](https://lifestyle.allwomenstalk.com/most-remarkable-intelligent-people-who-ever-lived/)
-- [disasters that never happened](https://lifestyle.allwomenstalk.com/predicted-catastrophes-that-never-happened/)
+- [coincidences in history](https://lifestyle.allwomenstalk.com/inexplicable-coincidences-throughout-history/)
+- [people who survived the impossible](https://inspiration.allwomenstalk.com/incredible-survival-stories-of-people-who-made-it-against-all-odds/)
+- [top 5 poets](https://books.allwomenstalk.com/of-the-best-poets-of-all-time/)
+- [riche le smoky and brilliant](https://inspiration.allwomenstalk.com/brilliant-controversial-adverts-that-everyone-should-see/)
 - [5 Scary Video Games ...](https://twilight.allwomenstalk.com/5-scary-video-games/)
 - [5 Vampire Video Games ...](https://twilight.allwomenstalk.com/5-vampire-video-games/)
 
