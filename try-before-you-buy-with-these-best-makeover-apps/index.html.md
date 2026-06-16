@@ -51,16 +51,16 @@ Which of these apps have you tried and loved? Or is there another one I need to 
 
 ## Related Posts
 
-- [what are good apps to find friends](https://apps.allwomenstalk.com/apps-for-making-friends/)
-- [app to track money owed](https://apps.allwomenstalk.com/the-best-apps-to-track-your-money/)
-- [new year's resolutions app](https://apps.allwomenstalk.com/apps-to-help-you-keep-your-new-years-resolutions/)
-- [best brain training apps](https://apps.allwomenstalk.com/the-best-apps-to-train-your-brain/)
-- [groove book app](https://apps.allwomenstalk.com/apps-to-get-your-fave-photos-off-your-phone-and-into-print/)
-- [best black friday deals apps](https://apps.allwomenstalk.com/apps-to-help-you-score-deals-on-black-friday/)
-- [visual budget android](https://apps.allwomenstalk.com/apps-to-help-you-achieve-your-new-years-financial-resolutions/)
 - [apps to help get pregnant](https://apps.allwomenstalk.com/want-to-get-pregnant-these-apps-will-help/)
-- [useful apps for adults](https://gadgets.allwomenstalk.com/apps-thatll-help-you-feel-more-like-an-adult/)
 - [educated app](https://apps.allwomenstalk.com/get-educated-with-these-ipad-apps/)
+- [what are good apps to find friends](https://apps.allwomenstalk.com/apps-for-making-friends/)
+- [visual budget android](https://apps.allwomenstalk.com/apps-to-help-you-achieve-your-new-years-financial-resolutions/)
+- [groove book app](https://apps.allwomenstalk.com/apps-to-get-your-fave-photos-off-your-phone-and-into-print/)
+- [app to track money owed](https://apps.allwomenstalk.com/the-best-apps-to-track-your-money/)
+- [useful apps for adults](https://gadgets.allwomenstalk.com/apps-thatll-help-you-feel-more-like-an-adult/)
+- [best brain training apps](https://apps.allwomenstalk.com/the-best-apps-to-train-your-brain/)
+- [best black friday deals apps](https://apps.allwomenstalk.com/apps-to-help-you-score-deals-on-black-friday/)
+- [new year's resolutions app](https://apps.allwomenstalk.com/apps-to-help-you-keep-your-new-years-resolutions/)
 - [7 Hot New Makeup Products to Try ...](https://makeup.allwomenstalk.com/hot-new-makeup-products-to-try/)
 - [Excellent Tips for Choosing the Right Makeup Produ...](https://allwomenstalk.com/tips-for-choosing-the-right-makeup-products/)
 

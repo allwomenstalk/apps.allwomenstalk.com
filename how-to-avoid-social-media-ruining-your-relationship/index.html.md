@@ -30,16 +30,16 @@ Simply stated, social media is just that. It’s an online social place so you c
 
 ## Related Posts
 
-- [emitaz height](https://love.allwomenstalk.com/how-dating-is-like-window-shopping/)
+- [wallpaper for love vastu](https://love.allwomenstalk.com/vastu-tips-for-improving-your-love-life/)
+- [bad habits in relationships](https://love.allwomenstalk.com/bad-relationship-habits-to-avoid/)
 - [dating mistake](https://love.allwomenstalk.com/the-number-one-dating-mistake-women-make/)
+- [interrational dating](https://love.allwomenstalk.com/love-is-blind-2/)
 - [single mom dating single dad advice](https://love.allwomenstalk.com/dating-tips-for-single-moms-3/)
 - [what to look for in a relationship with a girl](https://love.allwomenstalk.com/things-to-look-forward-to-in-a-new-relationship/)
-- [bad habits in relationships](https://love.allwomenstalk.com/bad-relationship-habits-to-avoid/)
-- [too choosy](https://love.allwomenstalk.com/what-happens-when-youre-too-choosy-when-dating/)
+- [emitaz height](https://love.allwomenstalk.com/how-dating-is-like-window-shopping/)
 - [unhealthy behaviors in a relationship](https://love.allwomenstalk.com/behaviors-that-are-unhealthy-in-a-relationship/)
 - [judgement in relationships](https://love.allwomenstalk.com/how-judgment-can-affect-your-relationship/)
-- [wallpaper for love vastu](https://love.allwomenstalk.com/vastu-tips-for-improving-your-love-life/)
-- [interrational dating](https://love.allwomenstalk.com/love-is-blind-2/)
+- [too choosy](https://love.allwomenstalk.com/what-happens-when-youre-too-choosy-when-dating/)
 - [How to Have a Better Relationship ...](https://allwomenstalk.com/how-to-have-a-better-relationship/)
 - [8 Love Tips for Facebook when in a Relationship .....](https://love.allwomenstalk.com/love-tips-for-facebook-when-in-a-relationship/)
 

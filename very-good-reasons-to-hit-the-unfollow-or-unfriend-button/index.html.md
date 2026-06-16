@@ -47,16 +47,16 @@ So tell me. Are you too nice to Unfollow or unfriend or are you ruthless?
 
 ## Related Posts
 
-- [is a rebound a good idea](https://love.allwomenstalk.com/these-are-the-reasons-not-to-have-a-rebound-relationship/)
-- [single at christmas](https://love.allwomenstalk.com/why-it-really-is-awesome-to-be-single-at-christmas/)
-- [reasons relationships end](https://love.allwomenstalk.com/the-top-reasons-why-relationships-come-to-an-end/)
 - [why mondays are the worst](https://funny.allwomenstalk.com/and-this-is-why-monday-is-the-worst-day-of-the-week/)
-- [smile if you are single](https://love.allwomenstalk.com/reasons-to-smile-when-youre-single/)
 - [unemployed after college](https://money.allwomenstalk.com/reasons-its-okay-to-be-unemployed-after-graduation/)
-- [why would a guy suddenly lose interest](https://love.allwomenstalk.com/reasons-why-he-suddenly-lost-interest/)
-- [no need boyfriend](https://love.allwomenstalk.com/reasons-you-dont-need-a-boyfriend-right-now/)
 - [why do we choose to text instead of talk](https://lifestyle.allwomenstalk.com/this-is-why-you-should-talk-instead-of-text/)
+- [no need boyfriend](https://love.allwomenstalk.com/reasons-you-dont-need-a-boyfriend-right-now/)
+- [is a rebound a good idea](https://love.allwomenstalk.com/these-are-the-reasons-not-to-have-a-rebound-relationship/)
 - [relationship didn't work out meaning](https://love.allwomenstalk.com/low-key-reasons-why-your-relationship-didnt-work-out/)
+- [single at christmas](https://love.allwomenstalk.com/why-it-really-is-awesome-to-be-single-at-christmas/)
+- [smile if you are single](https://love.allwomenstalk.com/reasons-to-smile-when-youre-single/)
+- [why would a guy suddenly lose interest](https://love.allwomenstalk.com/reasons-why-he-suddenly-lost-interest/)
+- [reasons relationships end](https://love.allwomenstalk.com/the-top-reasons-why-relationships-come-to-an-end/)
 - [7 Reasons Why Celebrities Shouldn't Tweet ...](https://celebs.allwomenstalk.com/reasons-why-celebrities-shouldnt-tweet/)
 - [10 Reasons Why I Prefer Facebook over Myspace ...](https://allwomenstalk.com/10-reasons-why-i-prefer-facebook-over-myspace/)
 

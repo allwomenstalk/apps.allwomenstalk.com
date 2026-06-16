@@ -73,16 +73,16 @@ itunes.apple.com_
 
 ## Related Posts
 
-- [viggle apps](https://apps.allwomenstalk.com/try-these-apps-if-you-want-to-earn-some-cash/)
-- [aunt flo app](https://apps.allwomenstalk.com/health-apps-to-help-you-track-shark-week-therewillbeblood/)
 - [7apps download](https://apps.allwomenstalk.com/smart-girls-download-these-apps-before-a-night-out/)
-- [apps youfit](https://apps.allwomenstalk.com/these-health-apps-will-help-you-get-fit-for-summer/)
-- [college technology survival kit pdf](https://apps.allwomenstalk.com/the-apps-that-make-up-a-students-survival-kit/)
+- [best allergy app](https://apps.allwomenstalk.com/the-best-apps-for-girls-with-allergies/)
 - [all fit app](https://apps.allwomenstalk.com/the-apps-every-fit-girl-needs-in/)
-- [funny daily affirmations app](https://apps.allwomenstalk.com/daily-affirmation-apps-for-those-who-need-additional-daily-inspo/)
+- [apps youfit](https://apps.allwomenstalk.com/these-health-apps-will-help-you-get-fit-for-summer/)
+- [aunt flo app](https://apps.allwomenstalk.com/health-apps-to-help-you-track-shark-week-therewillbeblood/)
 - [myfooddiary app](https://apps.allwomenstalk.com/food-journal-apps-for-those-who-are-trying-to-lose-weight-right-now/)
 - [snapchat tips](https://apps.allwomenstalk.com/ways-to-up-your-snapchat-game/)
-- [best allergy app](https://apps.allwomenstalk.com/the-best-apps-for-girls-with-allergies/)
+- [funny daily affirmations app](https://apps.allwomenstalk.com/daily-affirmation-apps-for-those-who-need-additional-daily-inspo/)
+- [viggle apps](https://apps.allwomenstalk.com/try-these-apps-if-you-want-to-earn-some-cash/)
+- [college technology survival kit pdf](https://apps.allwomenstalk.com/the-apps-that-make-up-a-students-survival-kit/)
 - [8 Best Places to Download Audio Books Online ...](https://lifestyle.allwomenstalk.com/best-places-to-download-audio-books-online/)
 - [9 Great Free Amazon Books for Kindle ...](https://lifestyle.allwomenstalk.com/great-free-amazon-books-for-kindle/)
 

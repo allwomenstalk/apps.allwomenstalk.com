@@ -75,16 +75,16 @@ Well, there you have it. These are just seven out of many awesome apps for weigh
 
 ## Related Posts
 
+- [creative ways to lose weight](https://weightloss.allwomenstalk.com/easy-and-creative-weight-loss-tips-to-transform-your-lifestyle/)
+- [is suya good for weight loss](https://food.allwomenstalk.com/foods-perfect-for-weight-loss/)
+- [how to lose 9 pounds in 2 weeks](https://weightloss.allwomenstalk.com/steps-to-help-you-lose-9-pounds-in-2-weeks/)
+- [dita von teese exercise](https://fitness.allwomenstalk.com/exercises-to-drop-a-dresssize/)
+- [berry smoothies for weight loss](https://food.allwomenstalk.com/berries-for-weight-loss-that-work-like-magic/)
 - [80 20 rule losing weight](https://weightloss.allwomenstalk.com/wonderful-weight-loss-infographics-to-help-you-achieve-your-goals/)
 - [how to help a friend lose weight](https://weightloss.allwomenstalk.com/ways-to-support-a-friend-whos-trying-to-lose-weight/)
-- [dita von teese exercise](https://fitness.allwomenstalk.com/exercises-to-drop-a-dresssize/)
-- [how to lose 9 pounds in 2 weeks](https://weightloss.allwomenstalk.com/steps-to-help-you-lose-9-pounds-in-2-weeks/)
 - [healthy condiments for weight loss](https://food.allwomenstalk.com/condiment-swaps-that-can-help-you-lose-weight/)
-- [berry smoothies for weight loss](https://food.allwomenstalk.com/berries-for-weight-loss-that-work-like-magic/)
-- [weight loss infographics](https://weightloss.allwomenstalk.com/weight-loss-infographics-to-keep-you-in-the-know/)
-- [is suya good for weight loss](https://food.allwomenstalk.com/foods-perfect-for-weight-loss/)
 - [funny responses to have you lost weight](https://funny.allwomenstalk.com/clever-replies-for-when-someone-comments-on-your-weight/)
-- [creative ways to lose weight](https://weightloss.allwomenstalk.com/easy-and-creative-weight-loss-tips-to-transform-your-lifestyle/)
+- [weight loss infographics](https://weightloss.allwomenstalk.com/weight-loss-infographics-to-keep-you-in-the-know/)
 - [10 IPhone Apps to Help You Lose Weight ...](https://gadgets.allwomenstalk.com/iphone-apps-to-help-you-lose-weight/)
 - [10 Useful Weight Loss Apps ...](https://diet.allwomenstalk.com/useful-weight-loss-apps/)
 

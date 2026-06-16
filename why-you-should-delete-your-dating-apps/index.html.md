@@ -34,16 +34,16 @@ Dating apps are for those who are afraid to leave their comfort zones. Your true
 
 ## Related Posts
 
-- [drinking out of plastic bottles](https://lifestyle.allwomenstalk.com/reasons-why-you-should-give-up-drinking-out-of-plastic-bottles/)
+- [please please i don't have any time for any gossip](https://love.allwomenstalk.com/please-dont-gossip-about-your-ex-reasons-why/)
 - [netflix commitment rings](https://jewelry.allwomenstalk.com/important-reasons-to-give-a-promise-ring/)
-- [do high schools do reunions](https://lifestyle.allwomenstalk.com/reasons-to-skip-your-high-school-reunion/)
 - [why people procrastinate](https://inspiration.allwomenstalk.com/a-look-at-why-people-procrastinate/)
-- [why are the lights off](https://lifestyle.allwomenstalk.com/important-reasons-to-turn-your-lights-off/)
-- [the value of friendships](https://lifestyle.allwomenstalk.com/why-you-should-value-your-female-friendships/)
 - [train dpz](https://love.allwomenstalk.com/how-to-end-your-relationship/)
+- [do high schools do reunions](https://lifestyle.allwomenstalk.com/reasons-to-skip-your-high-school-reunion/)
+- [the value of friendships](https://lifestyle.allwomenstalk.com/why-you-should-value-your-female-friendships/)
+- [why are the lights off](https://lifestyle.allwomenstalk.com/important-reasons-to-turn-your-lights-off/)
 - [looking for.love in all the wrong places](https://love.allwomenstalk.com/why-we-look-for-love-in-the-wrong-places/)
 - [going to a wedding single](https://love.allwomenstalk.com/understandable-reasons-why-single-women-are-not-so-fond-of-weddings/)
-- [please please i don't have any time for any gossip](https://love.allwomenstalk.com/please-dont-gossip-about-your-ex-reasons-why/)
+- [drinking out of plastic bottles](https://lifestyle.allwomenstalk.com/reasons-why-you-should-give-up-drinking-out-of-plastic-bottles/)
 - [4 Surprising Ways Online Dating Can Change Your Li...](https://love.allwomenstalk.com/surprising-ways-online-dating-can-change-your-life/)
 - [7 Shrewdly Clever Reasons to Avoid a Dating Type ....](https://love.allwomenstalk.com/shrewdly-clever-reasons-to-avoid-a-dating-type/)
 

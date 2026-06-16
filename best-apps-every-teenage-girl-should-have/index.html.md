@@ -128,16 +128,16 @@ This article was written in collaboration with editor Vanessa Salles.
 
 ## Related Posts
 
-- [what can i do on my phone](https://lifestyle.allwomenstalk.com/vitally-important-things-to-do-with-your-cell-phone/)
-- [magazine for mobile](https://apps.allwomenstalk.com/magazines-with-mobile-apps-youll-love/)
-- [discovr app](https://apps.allwomenstalk.com/helpful-music-apps-to-try-out/)
-- [cool arts and crafts](https://apps.allwomenstalk.com/cool-arts-crafts-apps-you-should-download/)
-- [apps you need to organize your life](https://apps.allwomenstalk.com/apps-to-help-organize-your-life/)
-- [app for finding things to do](https://apps.allwomenstalk.com/awesome-apps-thatll-help-you-discover-new-things/)
-- [best apps for outfit inspiration](https://apps.allwomenstalk.com/great-apps-every-fashion-lover-needs/)
 - [movie list apps](https://apps.allwomenstalk.com/awesome-apps-for-movie-lovers/)
-- [netflicks canada](https://apps.allwomenstalk.com/tv-channels-you-can-stream-right-on-your-smartphone/)
+- [best apps for outfit inspiration](https://apps.allwomenstalk.com/great-apps-every-fashion-lover-needs/)
+- [discovr app](https://apps.allwomenstalk.com/helpful-music-apps-to-try-out/)
 - [best free video chatting app](https://apps.allwomenstalk.com/of-the-best-video-chat-apps-to-download/)
+- [apps you need to organize your life](https://apps.allwomenstalk.com/apps-to-help-organize-your-life/)
+- [what can i do on my phone](https://lifestyle.allwomenstalk.com/vitally-important-things-to-do-with-your-cell-phone/)
+- [netflicks canada](https://apps.allwomenstalk.com/tv-channels-you-can-stream-right-on-your-smartphone/)
+- [magazine for mobile](https://apps.allwomenstalk.com/magazines-with-mobile-apps-youll-love/)
+- [app for finding things to do](https://apps.allwomenstalk.com/awesome-apps-thatll-help-you-discover-new-things/)
+- [cool arts and crafts](https://apps.allwomenstalk.com/cool-arts-crafts-apps-you-should-download/)
 - [7 Useful Apps I Use Every Day ...](https://lifestyle.allwomenstalk.com/useful-apps-i-use-every-day/)
 - [8 Best IPhone Applications ...](https://allwomenstalk.com/8-best-iphone-applications/)
 

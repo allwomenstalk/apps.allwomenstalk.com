@@ -123,15 +123,15 @@ What apps do you like to help keep you organized?
 
 ## Related Posts
 
-- [what college did lip go to](https://lifestyle.allwomenstalk.com/what-every-college-girl-does-to-procrastinate/)
-- [riche primped and previous](https://lifestyle.allwomenstalk.com/things-everyone-who-is-leaving-for-college-should-know/)
-- [7 Things to do during Winter Break to Prepare for ...](https://teen.allwomenstalk.com/things-to-do-during-winter-break-to-prepare-for-second-semester/)
-- [What Should Your College Major and Career Be?](https://money.allwomenstalk.com/what-should-your-college-major-and-career-be/)
 - [How College Prepares You for the Real World in Uni...](https://teen.allwomenstalk.com/how-college-prepares-you-for-the-real-world-in-unimaginable-ways/)
+- [What Should Your College Major and Career Be?](https://money.allwomenstalk.com/what-should-your-college-major-and-career-be/)
 - [The Best Reasons High School Grads Should Consider...](https://teen.allwomenstalk.com/jolly-good-reasons-for-high-school-grads-to-consider-community-college/)
-- [Want to Study 🤓Abroad but Don't Know Where? 🤔 Ch...](https://travel.allwomenstalk.com/want-to-study-abroad-but-dont-know-where/)
 - [Town Helps Homeless Teen Go to College ...](https://teen.allwomenstalk.com/town-helps-homeless-teen-go-to-college/)
+- [riche primped and previous](https://lifestyle.allwomenstalk.com/things-everyone-who-is-leaving-for-college-should-know/)
+- [Want to Study 🤓Abroad but Don't Know Where? 🤔 Ch...](https://travel.allwomenstalk.com/want-to-study-abroad-but-dont-know-where/)
+- [7 Things to do during Winter Break to Prepare for ...](https://teen.allwomenstalk.com/things-to-do-during-winter-break-to-prepare-for-second-semester/)
 - [Infographics to Help Struggling Students Ace an Im...](https://teen.allwomenstalk.com/infographics-for-students-who-need-to-ace-a-paper/)
+- [what college did lip go to](https://lifestyle.allwomenstalk.com/what-every-college-girl-does-to-procrastinate/)
 - [17 Productive Ways to Procrastinate during Finals ...](https://teen.allwomenstalk.com/productive-ways-to-procrastinate-during-finals-week/)
 - [9 Useful Tips for the College Student ...](https://allwomenstalk.com/9-useful-tips-for-the-college-student/)
 - [7 Brilliant Apps to Help You Write Better ...](https://apps.allwomenstalk.com/brilliant-apps-to-help-you-write-better/)

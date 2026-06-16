@@ -82,16 +82,16 @@ Please let us know of other great Twitter feeds for students.
 
 ## Related Posts
 
-- [partying in college](https://lifestyle.allwomenstalk.com/alternatives-to-partying-in-college/)
-- [things found outside the classroom](https://lifestyle.allwomenstalk.com/things-youll-learn-in-college-that-wont-be-taught-in-class/)
-- [homemade snacks for college students](https://food.allwomenstalk.com/how-to-turn-college-food-into-actual-edible-food/)
 - [that'll be 8 dollars gif](https://lifestyle.allwomenstalk.com/bad-habits-thatll-make-college-life-miserable/)
 - [sparknotes com](https://lifestyle.allwomenstalk.com/websites-like-spark-notes-thatll-help-you-in-school/)
-- [travel tips for students](https://travel.allwomenstalk.com/you-have-to-see-these-top-travel-tips-for-college-students/)
 - [why are college students broke](https://money.allwomenstalk.com/every-broke-college-student-needs-to-hear-this-news/)
-- [college peer pressure](https://teen.allwomenstalk.com/how-to-resist-peer-pressure-in-college/)
-- [last minute tweaks](https://teen.allwomenstalk.com/last-minute-tweaks-to-make-to-your-college-application/)
 - [stress short story](https://lifestyle.allwomenstalk.com/shorty-story-school-stress/)
+- [partying in college](https://lifestyle.allwomenstalk.com/alternatives-to-partying-in-college/)
+- [things found outside the classroom](https://lifestyle.allwomenstalk.com/things-youll-learn-in-college-that-wont-be-taught-in-class/)
+- [last minute tweaks](https://teen.allwomenstalk.com/last-minute-tweaks-to-make-to-your-college-application/)
+- [college peer pressure](https://teen.allwomenstalk.com/how-to-resist-peer-pressure-in-college/)
+- [travel tips for students](https://travel.allwomenstalk.com/you-have-to-see-these-top-travel-tips-for-college-students/)
+- [homemade snacks for college students](https://food.allwomenstalk.com/how-to-turn-college-food-into-actual-edible-food/)
 - [8 Useful IPhone Apps for Moms ...](https://allwomenstalk.com/8-useful-iphone-apps-for-moms/)
 - [7 Things to Love about Pinterest ...](https://allwomenstalk.com/things-to-love-about-pinterest/)
 

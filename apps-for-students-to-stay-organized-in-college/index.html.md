@@ -109,16 +109,16 @@ It’s hard to pick the very best apps for students because you’re all individ
 
 ## Related Posts
 
-- [community college before university](https://lifestyle.allwomenstalk.com/important-reasons-to-go-to-community-college-before-a-university/)
+- [why school is not important](https://parenting.allwomenstalk.com/important-things-students-are-not-taught-in-high-school/)
 - [skills that you learn in college](https://lifestyle.allwomenstalk.com/life-lessons-you-learn-in-college/)
+- [personal essay for college tips](https://lifestyle.allwomenstalk.com/tips-for-writing-a-personal-essay-for-college-admissions/)
+- [can't find a job after graduation](https://money.allwomenstalk.com/things-to-do-if-you-cant-find-a-job-after-college/)
+- [community college before university](https://lifestyle.allwomenstalk.com/important-reasons-to-go-to-community-college-before-a-university/)
+- [how to start at a new school](https://lifestyle.allwomenstalk.com/tips-for-starting-over-at-a-new-school/)
 - [advice for high schoolers](https://lifestyle.allwomenstalk.com/most-useful-tips-for-high-school-newcomers/)
 - [types of campus](https://lifestyle.allwomenstalk.com/types-of-students-youll-find-around-your-college-campus/)
-- [personal essay for college tips](https://lifestyle.allwomenstalk.com/tips-for-writing-a-personal-essay-for-college-admissions/)
-- [does study cause stress](https://lifestyle.allwomenstalk.com/main-causes-of-stress-in-college-students/)
-- [why school is not important](https://parenting.allwomenstalk.com/important-things-students-are-not-taught-in-high-school/)
-- [can't find a job after graduation](https://money.allwomenstalk.com/things-to-do-if-you-cant-find-a-job-after-college/)
-- [how to start at a new school](https://lifestyle.allwomenstalk.com/tips-for-starting-over-at-a-new-school/)
 - [dealing with homesickness in college](https://lifestyle.allwomenstalk.com/ways-to-cope-with-college-life-when-you-get-homesick/)
+- [does study cause stress](https://lifestyle.allwomenstalk.com/main-causes-of-stress-in-college-students/)
 - [10 Ways to Achieve a Productive and Organized Home...](https://allwomenstalk.com/ways-to-achieve-a-productive-and-organized-home-office/)
 - [7 Ways to Stay Organized for College ...](https://allwomenstalk.com/7-ways-to-stay-organized-for-college/)
 

@@ -54,16 +54,16 @@ In the UK, the BBC is giving away 1 million Microbits to kids to help them to le
 
 ## Related Posts
 
-- [your unbelievable](https://lifestyle.allwomenstalk.com/unbelievable-things-you-can-do-with-your-english-degree/)
-- [talk2rep work from home](https://money.allwomenstalk.com/work-from-home-companies-that-are-hiring-right-now/)
-- [how to be respected at work as a woman](https://money.allwomenstalk.com/expert-tips-for-women-who-want-more-respect-at-work/)
-- [single mom who works two jobs](https://teen.allwomenstalk.com/real-world-101-how-to-handle-your-very-first-job/)
-- [7 signs you're about to be fired](https://money.allwomenstalk.com/these-frustrating-habits-just-might-get-you-fired/)
-- [kickstart your business](https://money.allwomenstalk.com/how-to-kickstart-your-business-without-the-kickstarter-site/)
 - [coffee before interview](https://books.allwomenstalk.com/the-best-books-to-read-before-a-big-job-interview/)
-- [is leapforce legit](https://money.allwomenstalk.com/legit-work-from-home-jobs-to-earn-you-cash-without-leaving-your-pjs/)
-- [can i bring a tote bag to an interview](https://money.allwomenstalk.com/girls-going-to-an-interview-need-to-bring-these-things/)
+- [your unbelievable](https://lifestyle.allwomenstalk.com/unbelievable-things-you-can-do-with-your-english-degree/)
+- [7 signs you're about to be fired](https://money.allwomenstalk.com/these-frustrating-habits-just-might-get-you-fired/)
 - [how to appear more professional](https://lifestyle.allwomenstalk.com/this-is-how-to-always-sound-polished-and-professional/)
+- [is leapforce legit](https://money.allwomenstalk.com/legit-work-from-home-jobs-to-earn-you-cash-without-leaving-your-pjs/)
+- [single mom who works two jobs](https://teen.allwomenstalk.com/real-world-101-how-to-handle-your-very-first-job/)
+- [kickstart your business](https://money.allwomenstalk.com/how-to-kickstart-your-business-without-the-kickstarter-site/)
+- [talk2rep work from home](https://money.allwomenstalk.com/work-from-home-companies-that-are-hiring-right-now/)
+- [can i bring a tote bag to an interview](https://money.allwomenstalk.com/girls-going-to-an-interview-need-to-bring-these-things/)
+- [how to be respected at work as a woman](https://money.allwomenstalk.com/expert-tips-for-women-who-want-more-respect-at-work/)
 - [10 Must-Have Work Skills for 2013 ...](https://lifestyle.allwomenstalk.com/must-have-work-skills-for/)
 - [8 Valuable Career Skills You Can Teach Yourself .....](https://money.allwomenstalk.com/valuable-career-skills-you-can-teach-yourself/)
 

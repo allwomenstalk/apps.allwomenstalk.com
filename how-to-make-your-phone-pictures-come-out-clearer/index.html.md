@@ -52,16 +52,16 @@ If you're going to be snapping photos, you should make sure to do it right. If y
 
 ## Related Posts
 
-- [tips on how to drive](https://lifestyle.allwomenstalk.com/helpful-tips-for-everyone-learning-how-to-drive/)
 - [draw perfect circle](https://lifestyle.allwomenstalk.com/how-to-draw-a-perfect-circle/)
-- [tips on how to revise](https://teen.allwomenstalk.com/ultimate-list-of-tips-to-help-you-revise-smarter/)
-- [paris le stylo infinite sky](https://lifestyle.allwomenstalk.com/websites-thatll-improve-your-social-skills/)
-- [kendal and kylie game](https://apps.allwomenstalk.com/tips-for-kendall-kylies-game/)
-- [how to use watercolors](https://diy.allwomenstalk.com/these-tutorials-will-help-you-learn-how-to-use-watercolor/)
-- [what to do before transferring to new phone](https://lifestyle.allwomenstalk.com/heres-how-to-prep-for-switching-your-phone-to-a-new-one/)
-- [life hacks for your car](https://lifestyle.allwomenstalk.com/car-life-hacks-thatll-help-any-driver/)
 - [can aligators climb trees](https://lifestyle.allwomenstalk.com/life-saving-tips-for-surviving-a-wild-animal-attack/)
 - [how to improve your handwriting](https://lifestyle.allwomenstalk.com/how-to-improve-your-handwriting/)
+- [paris le stylo infinite sky](https://lifestyle.allwomenstalk.com/websites-thatll-improve-your-social-skills/)
+- [tips on how to revise](https://teen.allwomenstalk.com/ultimate-list-of-tips-to-help-you-revise-smarter/)
+- [tips on how to drive](https://lifestyle.allwomenstalk.com/helpful-tips-for-everyone-learning-how-to-drive/)
+- [kendal and kylie game](https://apps.allwomenstalk.com/tips-for-kendall-kylies-game/)
+- [life hacks for your car](https://lifestyle.allwomenstalk.com/car-life-hacks-thatll-help-any-driver/)
+- [how to use watercolors](https://diy.allwomenstalk.com/these-tutorials-will-help-you-learn-how-to-use-watercolor/)
+- [what to do before transferring to new phone](https://lifestyle.allwomenstalk.com/heres-how-to-prep-for-switching-your-phone-to-a-new-one/)
 - [Want to Edit Photos Faster? Here Are 4 Tips to Hel...](https://allwomenstalk.com/edit-photos-faster/)
 - [3 Simple Tips on How to Look Your Best in Your Chr...](https://allwomenstalk.com/how-to-look-best-on-christmas-card-photos/)
 

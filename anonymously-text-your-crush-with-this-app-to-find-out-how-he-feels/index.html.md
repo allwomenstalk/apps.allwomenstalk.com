@@ -16,16 +16,16 @@ Would you ever use this app or would you prefer to find out how your crush feels
 
 ## Related Posts
 
-- [7 Things to do with Your Time ⏰ Instead of Texting...](https://love.allwomenstalk.com/things-to-do-instead-of-text-back-that-stupid-boy/)
 - [questions about myself to ask my boyfriend](https://love.allwomenstalk.com/questions-you-should-be-able-to-answer-about-your-bf/)
+- [7 Things to do with Your Time ⏰ Instead of Texting...](https://love.allwomenstalk.com/things-to-do-instead-of-text-back-that-stupid-boy/)
+- [genius super shy](https://love.allwomenstalk.com/how-shy-girls-can-get-their-crush-to-realize-they-exist/)
 - [would a guy text you everyday if he wasn't interes...](https://love.allwomenstalk.com/how-to-tell-if-hes-interested-by-reading-through-his-texts/)
-- [flirt with your crush](https://love.allwomenstalk.com/ways-for-shy-girls-to-flirt-with-their-crush/)
-- [kissed someone below the belt](https://love.allwomenstalk.com/what-does-each-type-of-kiss-actually-mean/)
 - [flirt kiss gif](https://love.allwomenstalk.com/ways-for-bold-girls-to-flirt-with-their-crush/)
 - [do guys stalk their crushes](https://love.allwomenstalk.com/inappropriate-things-you-shouldnt-do-when-crushing-on-a-guy/)
-- [what to ask a girl about herself](https://love.allwomenstalk.com/questions-every-girl-should-ask-herself-before-asking-him-out/)
-- [genius super shy](https://love.allwomenstalk.com/how-shy-girls-can-get-their-crush-to-realize-they-exist/)
+- [flirt with your crush](https://love.allwomenstalk.com/ways-for-shy-girls-to-flirt-with-their-crush/)
 - [jalicia meaning](https://love.allwomenstalk.com/stop-having-these-paranoid-thoughts-about-your-crush/)
+- [kissed someone below the belt](https://love.allwomenstalk.com/what-does-each-type-of-kiss-actually-mean/)
+- [what to ask a girl about herself](https://love.allwomenstalk.com/questions-every-girl-should-ask-herself-before-asking-him-out/)
 - [Avoid Embarrassment- How to Control Yourself aroun...](https://love.allwomenstalk.com/avoid-embarrassment-how-to-control-yourself-around-your-crush/)
 - [Wish Your Crush Would Talk to You?](https://love.allwomenstalk.com/wish-your-crush-would-talk-to-you-the-secret-to-seeming-more-approachable/)
 

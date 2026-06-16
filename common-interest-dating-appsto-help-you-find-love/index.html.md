@@ -90,15 +90,15 @@ Is there an app for your passion? Tell us about it!
 
 ## Related Posts
 
+- [highschool sweet hearts](https://love.allwomenstalk.com/the-truth-about-high-school-sweethearts-relationships/)
+- [compatibility or chemistry](https://love.allwomenstalk.com/the-uber-important-differences-between-compatibility-and-chemistry/)
+- [perpetually single meaning](https://love.allwomenstalk.com/things-to-know-before-dating-the-perpetually-single-girl/)
 - [the girl best friend](https://love.allwomenstalk.com/the-girl-best-friend-guide-to-keeping-civil-with-his-girlfriend/)
-- [low maintenance girlfriend](https://love.allwomenstalk.com/you-should-probably-know-these-things-before-dating-a-low-maintenance-girl/)
 - [first century dates](https://love.allwomenstalk.com/the-rules-for-first-dates-for-the-2-1-st-century/)
 - [stages of relationship psychology](https://love.allwomenstalk.com/five-stages-of-love-according-to-psychology/)
-- [highschool sweet hearts](https://love.allwomenstalk.com/the-truth-about-high-school-sweethearts-relationships/)
-- [perpetually single meaning](https://love.allwomenstalk.com/things-to-know-before-dating-the-perpetually-single-girl/)
-- [fed up with dating](https://love.allwomenstalk.com/things-to-remember-when-youre-fed-up-with-dating/)
+- [low maintenance girlfriend](https://love.allwomenstalk.com/you-should-probably-know-these-things-before-dating-a-low-maintenance-girl/)
 - [what do you do when you fall in love](https://love.allwomenstalk.com/things-you-should-feel-when-you-fall-in-love/)
-- [compatibility or chemistry](https://love.allwomenstalk.com/the-uber-important-differences-between-compatibility-and-chemistry/)
+- [fed up with dating](https://love.allwomenstalk.com/things-to-remember-when-youre-fed-up-with-dating/)
 - [couples en rut](https://love.allwomenstalk.com/how-to-get-that-honeymoon-feeling-back-for-couples-in-a-rut/)
 - [8 out of Ten Online Daters Lie for Love ...](https://allwomenstalk.com/8-out-of-ten-online-daters-lie-for-love/)
 - [8 Surprisingly Good Reasons to Meet People Online ...](https://lifestyle.allwomenstalk.com/surprisingly-good-reasons-to-meet-people-online/)

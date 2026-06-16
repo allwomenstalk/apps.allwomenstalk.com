@@ -70,16 +70,16 @@ This is just a flavor of the type of apps available. The selection is also gener
 
 ## Related Posts
 
-- [apps youfit](https://apps.allwomenstalk.com/these-health-apps-will-help-you-get-fit-for-summer/)
-- [myfooddiary app](https://apps.allwomenstalk.com/food-journal-apps-for-those-who-are-trying-to-lose-weight-right-now/)
 - [icebreaker questions for relationships](https://apps.allwomenstalk.com/apps-for-couples-who-want-to-have-a-stronger-bond/)
-- [all fit app](https://apps.allwomenstalk.com/the-apps-every-fit-girl-needs-in/)
-- [snapchat tips](https://apps.allwomenstalk.com/ways-to-up-your-snapchat-game/)
-- [aunt flo app](https://apps.allwomenstalk.com/health-apps-to-help-you-track-shark-week-therewillbeblood/)
+- [myfooddiary app](https://apps.allwomenstalk.com/food-journal-apps-for-those-who-are-trying-to-lose-weight-right-now/)
 - [college technology survival kit pdf](https://apps.allwomenstalk.com/the-apps-that-make-up-a-students-survival-kit/)
+- [snapchat tips](https://apps.allwomenstalk.com/ways-to-up-your-snapchat-game/)
+- [all fit app](https://apps.allwomenstalk.com/the-apps-every-fit-girl-needs-in/)
+- [apps youfit](https://apps.allwomenstalk.com/these-health-apps-will-help-you-get-fit-for-summer/)
+- [funny daily affirmations app](https://apps.allwomenstalk.com/daily-affirmation-apps-for-those-who-need-additional-daily-inspo/)
+- [aunt flo app](https://apps.allwomenstalk.com/health-apps-to-help-you-track-shark-week-therewillbeblood/)
 - [viggle apps](https://apps.allwomenstalk.com/try-these-apps-if-you-want-to-earn-some-cash/)
 - [job search apps](https://apps.allwomenstalk.com/best-apps-for-girls-looking-for-a-job/)
-- [funny daily affirmations app](https://apps.allwomenstalk.com/daily-affirmation-apps-for-those-who-need-additional-daily-inspo/)
 - [7 Fashion Apps We Can't Live without ...](https://lifestyle.allwomenstalk.com/fashion-apps-we-cant-live-without/)
 - [7 Best Music Apps to Download ...](https://lifestyle.allwomenstalk.com/best-music-apps-to-download/)
 

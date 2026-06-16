@@ -42,16 +42,16 @@ Have you played Pokemon Go yet? How did it make you feel?
 
 ## Related Posts
 
-- [7 Very Helpful 🤗 Tips for Dealing with Depression...](https://health.allwomenstalk.com/tips-for-dealing-with-depression/)
-- [Healthy Ways to Manage PMS when You're Spiraling o...](https://health.allwomenstalk.com/healthy-ways-to-manage-pms-when-youre-spiraling-out-of-control/)
-- [24 Simple Ways to Incorporate Mindfulness into You...](https://health.allwomenstalk.com/simple-ways-to-incorporate-mindfulness-into-your-daily-life/)
-- [Healthy Ways 🤕 to Keep Exam Stress at Bay ⏬ ...](https://lifestyle.allwomenstalk.com/healthy-ways-to-deal-with-exam-stress/)
-- [loreal color riche le stylo infinite sky](https://inspiration.allwomenstalk.com/ways-to-overcome-anger-and-find-inner-peace/)
-- [Ways to Unwind for People Stressed out by the Holi...](https://health.allwomenstalk.com/ways-to-unwind-for-people-stressed-out-by-the-holiday-season/)
-- [Potential Causes (and Cures) for Moodiness ...](https://health.allwomenstalk.com/potential-causes-and-cures-for-moodiness/)
-- [5 Encouraging Ways to Cope with a Mental Breakdown...](https://health.allwomenstalk.com/ways-to-cope-with-a-mental-breakdown/)
 - [Signals Your Body Sends when You're Stressed (and ...](https://health.allwomenstalk.com/signals-your-body-sends-when-youre-stressed-and-how-to-deal/)
 - [riche le stylo eye garde azure](https://apps.allwomenstalk.com/playing-pokemon-go-is-helping-people-with-mental-health-issues-feel-better/)
+- [Healthy Ways to Manage PMS when You're Spiraling o...](https://health.allwomenstalk.com/healthy-ways-to-manage-pms-when-youre-spiraling-out-of-control/)
+- [loreal color riche le stylo infinite sky](https://inspiration.allwomenstalk.com/ways-to-overcome-anger-and-find-inner-peace/)
+- [Healthy Ways 🤕 to Keep Exam Stress at Bay ⏬ ...](https://lifestyle.allwomenstalk.com/healthy-ways-to-deal-with-exam-stress/)
+- [Ways to Unwind for People Stressed out by the Holi...](https://health.allwomenstalk.com/ways-to-unwind-for-people-stressed-out-by-the-holiday-season/)
+- [5 Encouraging Ways to Cope with a Mental Breakdown...](https://health.allwomenstalk.com/ways-to-cope-with-a-mental-breakdown/)
+- [7 Very Helpful 🤗 Tips for Dealing with Depression...](https://health.allwomenstalk.com/tips-for-dealing-with-depression/)
+- [Potential Causes (and Cures) for Moodiness ...](https://health.allwomenstalk.com/potential-causes-and-cures-for-moodiness/)
+- [24 Simple Ways to Incorporate Mindfulness into You...](https://health.allwomenstalk.com/simple-ways-to-incorporate-mindfulness-into-your-daily-life/)
 - [The Most Effective Ways of Fighting Depression ...](https://vityle.com/the-most-effective-ways-of-fighting-depression/)
 - [7 Reasons Exercising outside Can Help Prevent Depr...](https://fitness.allwomenstalk.com/reasons-exercising-outside-can-help-prevent-depression/)
 

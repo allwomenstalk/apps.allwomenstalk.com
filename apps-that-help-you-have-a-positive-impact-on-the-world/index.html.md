@@ -41,15 +41,15 @@ itunes.apple.com_
 ## Related Posts
 
 - [bathroom finder nyc](https://apps.allwomenstalk.com/apps-to-find-bathrooms-in-new-york/)
-- [apps for making outfits](https://apps.allwomenstalk.com/awesome-outfit-planning-apps/)
-- [meeting apps for teens](https://apps.allwomenstalk.com/best-dating-apps-for-teens/)
-- [meet new friend](https://apps.allwomenstalk.com/best-apps-for-meeting-new-friends/)
-- [astrology best app](https://apps.allwomenstalk.com/the-best-astrology-apps-for-girls-who-love-to-know-their-future/)
-- [best gift tracker app](https://apps.allwomenstalk.com/apps-to-organize-your-holiday-gift-lists/)
-- [life changing apps](https://apps.allwomenstalk.com/apps-that-will-change-your-life/)
+- [best travel apps 2018](https://apps.allwomenstalk.com/best-travel-apps-for/)
 - [best christmas apps](https://apps.allwomenstalk.com/best-christmas-apps-for/)
 - [self-care apps](https://apps.allwomenstalk.com/of-the-best-self-care-apps-you-need-in/)
-- [best travel apps 2018](https://apps.allwomenstalk.com/best-travel-apps-for/)
+- [meeting apps for teens](https://apps.allwomenstalk.com/best-dating-apps-for-teens/)
+- [astrology best app](https://apps.allwomenstalk.com/the-best-astrology-apps-for-girls-who-love-to-know-their-future/)
+- [best gift tracker app](https://apps.allwomenstalk.com/apps-to-organize-your-holiday-gift-lists/)
+- [meet new friend](https://apps.allwomenstalk.com/best-apps-for-meeting-new-friends/)
+- [life changing apps](https://apps.allwomenstalk.com/apps-that-will-change-your-life/)
+- [apps for making outfits](https://apps.allwomenstalk.com/awesome-outfit-planning-apps/)
 - [7 Ways to Make a Difference ...](https://allwomenstalk.com/7-ways-to-make-a-difference/)
 - [10 Apps to Help You Organize Your Life ...](https://lifestyle.allwomenstalk.com/apps-to-help-you-organize-your-life/)
 

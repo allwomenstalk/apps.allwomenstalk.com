@@ -52,13 +52,13 @@ Think we missed a popular site? Let us know in the comments!
 
 ## Related Posts
 
-- [will best relationship](https://books.allwomenstalk.com/books-that-will-improve-your-relationship/)
-- [skype date](https://love.allwomenstalk.com/skype-dates-for-long-distance-relationships/)
-- [how to start dating a friend](https://love.allwomenstalk.com/things-you-should-know-before-you-start-dating-a-friend/)
 - [body language in a relationship](https://love.allwomenstalk.com/what-your-body-language-reveals-about-your-relationship/)
-- [snooping in a relationship](https://love.allwomenstalk.com/the-dangers-of-snooping-in-your-relationship/)
 - [how to stop overthinking in a long distance relati...](https://love.allwomenstalk.com/how-to-stop-overthinking-in-your-relationship/)
+- [will best relationship](https://books.allwomenstalk.com/books-that-will-improve-your-relationship/)
+- [how to start dating a friend](https://love.allwomenstalk.com/things-you-should-know-before-you-start-dating-a-friend/)
+- [skype date](https://love.allwomenstalk.com/skype-dates-for-long-distance-relationships/)
 - [idris elba girlfriends](https://love.allwomenstalk.com/a-story-about-meeting-his-new-girlfriend/)
+- [snooping in a relationship](https://love.allwomenstalk.com/the-dangers-of-snooping-in-your-relationship/)
 - [6 p's of preparation](https://love.allwomenstalk.com/6-ps-that-will-lead-you-to-finding-the-one/)
 - [how to say you're not looking for a relationship](https://love.allwomenstalk.com/how-to-tell-someone-youre-not-looking-for-a-relationship/)
 - [rbombed](https://love.allwomenstalk.com/everything-you-need-to-know-about-r-bombing/)

@@ -42,16 +42,16 @@ I for one am super-excited about the new iPhone, and I’ll be getting one as so
 
 ## Related Posts
 
+- [beyond premium wine chiller](https://food.allwomenstalk.com/equip-your-wine-with-balls-of-steel/)
 - [7 of the Best Free Antivirus Software Programs ...](https://money.allwomenstalk.com/of-the-best-free-antivirus-software-programs/)
 - [Cardboard's More Interesting than You Think ...](https://diy.allwomenstalk.com/interesting-uses-for-cardboard/)
 - [24 Super Sweet IPad Covers You Are Going to Love ....](https://gadgets.allwomenstalk.com/super-sweet-ipad-covers-you-are-going-to-love/)
-- [best websites you didn't know about](https://lifestyle.allwomenstalk.com/websites-you-didnt-know-you-needed-in-your-life-until-now/)
-- [beyond premium wine chiller](https://food.allwomenstalk.com/equip-your-wine-with-balls-of-steel/)
-- [Here Are the Most Popular Google Searches of 2014 ...](https://lifestyle.allwomenstalk.com/here-are-the-most-popular-google-searches-of-did-you-look-these-up/)
-- [retailmenot champs](https://lifestyle.allwomenstalk.com/retailmenot-roundup-gray-thursday-black-friday-action/)
 - [7 Classic Pieces Worth the Splurge ...](https://fashion.allwomenstalk.com/classic-pieces-worth-the-splurge/)
-- [loreal stylo shadow amour](https://running.allwomenstalk.com/handy-ways-to-keep-your-stuff-secure-while-you-run/)
+- [retailmenot champs](https://lifestyle.allwomenstalk.com/retailmenot-roundup-gray-thursday-black-friday-action/)
 - [This Epic SmartPhone Case Prints Your Photos Right...](https://apps.allwomenstalk.com/this-epic-smartphone-case-prints-your-photos-right-on-the-spot/)
+- [loreal stylo shadow amour](https://running.allwomenstalk.com/handy-ways-to-keep-your-stuff-secure-while-you-run/)
+- [Here Are the Most Popular Google Searches of 2014 ...](https://lifestyle.allwomenstalk.com/here-are-the-most-popular-google-searches-of-did-you-look-these-up/)
+- [best websites you didn't know about](https://lifestyle.allwomenstalk.com/websites-you-didnt-know-you-needed-in-your-life-until-now/)
 - [7 Best Travel Apps for the IPhone ...](https://travel.allwomenstalk.com/7-best-travel-apps-for-the-iphone/)
 - [Top 7 Smartphones ...](https://allwomenstalk.com/top-7-smartphones/)
 

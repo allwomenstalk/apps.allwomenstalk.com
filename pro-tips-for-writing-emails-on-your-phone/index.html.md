@@ -32,16 +32,16 @@ In fact, it’s a good idea to proofread everything that you send over email on 
 
 ## Related Posts
 
-- [how to turn weakness into strength](https://inspiration.allwomenstalk.com/how-to-turn-weaknesses-into-stengths/)
-- [perfect hostess](https://lifestyle.allwomenstalk.com/awesome-tips-that-will-make-you-the-perfect-hostess/)
-- [how to improve fiction writing skills](https://books.allwomenstalk.com/essential-tips-to-improve-your-fiction-writing/)
-- [5 tips to overcome your fear of public speaking](https://lifestyle.allwomenstalk.com/steps-to-overcome-a-fear-of-public-speaking/)
-- [how to be awsome](https://inspiration.allwomenstalk.com/tips-on-how-to-be-awesome/)
-- [how to never run out of things to say on a date](https://lifestyle.allwomenstalk.com/video-guide-on-how-to-never-run-out-of-things-to-say/)
-- [how to survive in a tsunami](https://travel.allwomenstalk.com/how-to-survive-a-tsunami/)
-- [what are revision notes](https://teen.allwomenstalk.com/tips-for-making-revision-notes/)
-- [ways to market your book](https://books.allwomenstalk.com/how-to-market-your-book/)
 - [european language quiz](https://lifestyle.allwomenstalk.com/how-to-learn-a-european-language/)
+- [perfect hostess](https://lifestyle.allwomenstalk.com/awesome-tips-that-will-make-you-the-perfect-hostess/)
+- [how to turn weakness into strength](https://inspiration.allwomenstalk.com/how-to-turn-weaknesses-into-stengths/)
+- [5 tips to overcome your fear of public speaking](https://lifestyle.allwomenstalk.com/steps-to-overcome-a-fear-of-public-speaking/)
+- [ways to market your book](https://books.allwomenstalk.com/how-to-market-your-book/)
+- [how to never run out of things to say on a date](https://lifestyle.allwomenstalk.com/video-guide-on-how-to-never-run-out-of-things-to-say/)
+- [how to be awsome](https://inspiration.allwomenstalk.com/tips-on-how-to-be-awesome/)
+- [how to improve fiction writing skills](https://books.allwomenstalk.com/essential-tips-to-improve-your-fiction-writing/)
+- [what are revision notes](https://teen.allwomenstalk.com/tips-for-making-revision-notes/)
+- [how to survive in a tsunami](https://travel.allwomenstalk.com/how-to-survive-a-tsunami/)
 - [10 Tips on How to Become a Writer ...](https://lifestyle.allwomenstalk.com/tips-on-how-to-become-a-writer/)
 - [8 Great Tips to Look Professional at Work ...](https://fashion.allwomenstalk.com/8-great-tips-to-look-professional-at-work/)
 
