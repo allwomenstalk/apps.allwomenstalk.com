@@ -3,7 +3,7 @@ title: "5 Most Badass Female Video Game Characters ..."
 description: "Elizabeth Comstock – Bioshock Infinite; Ellie – the Last of Us; Elena Fisher – Uncharted Series; Clementine – the Walking Dead; Aveline De Grandpré - Assassin’s Creed: Liberation; More ..."
 url: "https://apps.allwomenstalk.com/most-badass-female-video-game-characters/"
 category: "apps"
-last_updated: "2026-06-13"
+last_updated: "2026-06-16"
 ---
 
 # 5 Most Badass Female Video Game Characters ...
@@ -42,16 +42,16 @@ Being an assassin is already badass enough, which you’ll know if you’re a fa
 
 ## Related Posts
 
-- [disney character female](https://movies.allwomenstalk.com/weakest-female-disney-characters/)
-- [common misconceptions about feminism](https://lifestyle.allwomenstalk.com/misconceptions-about-feminism/)
 - [important female scientists](https://celebs.allwomenstalk.com/famous-female-scientists/)
-- [girl from the office](https://movies.allwomenstalk.com/women-from-the-office-who-should-be-your-role-models/)
-- [role models images](https://fitness.allwomenstalk.com/female-athletes-who-should-be-your-role-models/)
 - [girl punk outfit](https://fashion.allwomenstalk.com/celebrity-punk-style-icons/)
-- [lucy sutcliffe and kaelyn](https://celebs.allwomenstalk.com/inspirational-lesbian-celebs/)
 - [women comparison](https://inspiration.allwomenstalk.com/women-are-like-water/)
-- [stranger things females](https://movies.allwomenstalk.com/amazing-women-in-stranger-things/)
+- [lucy sutcliffe and kaelyn](https://celebs.allwomenstalk.com/inspirational-lesbian-celebs/)
 - [famous female poems](https://music.allwomenstalk.com/female-artists-whose-music-is-pure-poetry/)
+- [stranger things females](https://movies.allwomenstalk.com/amazing-women-in-stranger-things/)
+- [role models images](https://fitness.allwomenstalk.com/female-athletes-who-should-be-your-role-models/)
+- [girl from the office](https://movies.allwomenstalk.com/women-from-the-office-who-should-be-your-role-models/)
+- [common misconceptions about feminism](https://lifestyle.allwomenstalk.com/misconceptions-about-feminism/)
+- [disney character female](https://movies.allwomenstalk.com/weakest-female-disney-characters/)
 - [5 Best Video Games with Cool Guns ...](https://twilight.allwomenstalk.com/5-best-video-games-with-cool-guns/)
 - [7 Strong and Inspiring Female Characters from Movi...](https://movies.allwomenstalk.com/7-strong-and-inspiring-female-characters-from-movies/)
 
