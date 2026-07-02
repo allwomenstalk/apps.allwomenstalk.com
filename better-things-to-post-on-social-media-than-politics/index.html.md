@@ -3,7 +3,7 @@ title: "5 Better Things to Post on Social Media than Politics ..."
 description: "Post a Picture of Something Beautiful like a Flower, a Person, or View; Why Not Post a Link to a Great Song?; Post a Video Clip of Your Fave Comedy Film Moment or Stand up; Why Not Share a Pic of a Gorgeous Human Being?; Recommendations; More ..."
 url: "https://apps.allwomenstalk.com/better-things-to-post-on-social-media-than-politics/"
 category: "apps"
-last_updated: "2026-06-24"
+last_updated: "2026-07-02"
 ---
 
 # 5 Better Things to Post on Social Media than Politics ...
