@@ -3,7 +3,7 @@ title: "7 Types of People You Should Un-Friend on Facebook ..."
 description: "The Nosy Friend; The Always Offended Friend; The Drama Queen; The TMI Friend; The Screams for Attention Friend; More ..."
 url: "https://apps.allwomenstalk.com/types-of-people-you-should-un-friend-on-facebook/"
 category: "apps"
-last_updated: "2026-07-21"
+last_updated: "2026-07-24"
 ---
 
 # 7 Types of People You Should Un\-Friend on Facebook ...
@@ -44,14 +44,14 @@ Do you have any of these types of friends on Facebook? Which of these are your p
 
 - [things to consider cheating](https://love.allwomenstalk.com/these-things-arent-actually-considered-cheating/)
 - [shouldbesociallyacceptable](https://lifestyle.allwomenstalk.com/things-that-should-be-socially-acceptable/)
-- [7 Things You Should Never Ever do before Sex ...](https://love.allwomenstalk.com/things-you-should-never-ever-do-before-sex/)
-- [fremenies](https://inspiration.allwomenstalk.com/things-women-should-never-apologize-for/)
-- [riche stylo amour](https://love.allwomenstalk.com/dont-mistake-these-things-for-love/)
 - [taking naps with contacts](https://lifestyle.allwomenstalk.com/never-do-these-things-while-wearing-contacts/)
-- [worst first date spots](https://love.allwomenstalk.com/the-absolute-worst-places-for-a-first-date/)
-- [if couples were 100% honest](https://love.allwomenstalk.com/times-you-shouldnt-be-100-honest-with-him/)
 - [awkward first date](https://love.allwomenstalk.com/awkward-first-date-moments-you-hope-to-avoid/)
+- [if couples were 100% honest](https://love.allwomenstalk.com/times-you-shouldnt-be-100-honest-with-him/)
+- [riche stylo amour](https://love.allwomenstalk.com/dont-mistake-these-things-for-love/)
+- [worst first date spots](https://love.allwomenstalk.com/the-absolute-worst-places-for-a-first-date/)
+- [7 Things You Should Never Ever do before Sex ...](https://love.allwomenstalk.com/things-you-should-never-ever-do-before-sex/)
 - [don't let him in](https://love.allwomenstalk.com/dont-let-him-in-your-pants-if-he-does-these-things/)
+- [fremenies](https://inspiration.allwomenstalk.com/things-women-should-never-apologize-for/)
 - [7 Fun Reasons to Get Facebook ...](https://allwomenstalk.com/7-fun-reasons-to-get-facebook/)
 - [Friendship 101: 7 Things to Avoid ...](https://allwomenstalk.com/friendship-101-7-things-to-avoid/)
 
