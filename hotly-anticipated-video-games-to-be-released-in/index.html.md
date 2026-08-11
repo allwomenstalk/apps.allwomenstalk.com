@@ -3,7 +3,7 @@ title: "7 Hotly Anticipated Video Games to Be Released in 2015 ..."
 description: "Resident Evil Revelations 2; Final Fantasy XV; Crackdown; Evolve; Battlefield: Hardline; More ..."
 url: "https://apps.allwomenstalk.com/hotly-anticipated-video-games-to-be-released-in/"
 category: "apps"
-last_updated: "2026-08-08"
+last_updated: "2026-08-11"
 ---
 
 # 7 Hotly Anticipated Video Games to Be Released in 2015 ...
@@ -56,16 +56,16 @@ Which game(s) can’t you wait for this year?
 
 ## Related Posts
 
-- [house hanging off cliff minecraft](https://travel.allwomenstalk.com/cliffside-towns-clinging-on-to-life/)
-- [different storms](https://lifestyle.allwomenstalk.com/rare-weather-phenomena-that-will-leave-you-speechless/)
-- [top 5 poets](https://books.allwomenstalk.com/of-the-best-poets-of-all-time/)
-- [most famous secret societies](https://lifestyle.allwomenstalk.com/of-the-most-mysterious-secret-societies-in-the-world/)
-- [riche le smoky and brilliant](https://inspiration.allwomenstalk.com/brilliant-controversial-adverts-that-everyone-should-see/)
 - [disasters that never happened](https://lifestyle.allwomenstalk.com/predicted-catastrophes-that-never-happened/)
-- [disney world date ideas](https://love.allwomenstalk.com/disney-inspired-dates-to-go-on/)
-- [terence tao vs albert einstein](https://lifestyle.allwomenstalk.com/most-remarkable-intelligent-people-who-ever-lived/)
-- [people who survived the impossible](https://inspiration.allwomenstalk.com/incredible-survival-stories-of-people-who-made-it-against-all-odds/)
+- [different storms](https://lifestyle.allwomenstalk.com/rare-weather-phenomena-that-will-leave-you-speechless/)
+- [house hanging off cliff minecraft](https://travel.allwomenstalk.com/cliffside-towns-clinging-on-to-life/)
 - [coincidences in history](https://lifestyle.allwomenstalk.com/inexplicable-coincidences-throughout-history/)
+- [most famous secret societies](https://lifestyle.allwomenstalk.com/of-the-most-mysterious-secret-societies-in-the-world/)
+- [top 5 poets](https://books.allwomenstalk.com/of-the-best-poets-of-all-time/)
+- [terence tao vs albert einstein](https://lifestyle.allwomenstalk.com/most-remarkable-intelligent-people-who-ever-lived/)
+- [riche le smoky and brilliant](https://inspiration.allwomenstalk.com/brilliant-controversial-adverts-that-everyone-should-see/)
+- [disney world date ideas](https://love.allwomenstalk.com/disney-inspired-dates-to-go-on/)
+- [people who survived the impossible](https://inspiration.allwomenstalk.com/incredible-survival-stories-of-people-who-made-it-against-all-odds/)
 - [5 Scary Video Games ...](https://twilight.allwomenstalk.com/5-scary-video-games/)
 - [5 Vampire Video Games ...](https://twilight.allwomenstalk.com/5-vampire-video-games/)
 
