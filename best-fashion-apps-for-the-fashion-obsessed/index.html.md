@@ -53,14 +53,14 @@ What’s your favorite fashion app? Leave me your favorites in the comments so I
 
 ## Related Posts
 
-- [nifty apps](https://apps.allwomenstalk.com/come-on-get-appy-these-nifty-fitness-apps-will-make-you-healthy-and-happy/)
-- [best app to get concert tickets](https://apps.allwomenstalk.com/never-miss-a-concert-again-with-these-apps/)
-- [tooth apps](https://apps.allwomenstalk.com/here-are-the-apps-your-sweet-tooth-will-love/)
 - [diet application](https://apps.allwomenstalk.com/the-best-diet-apps-out-there/)
-- [apps to play when bored in class](https://apps.allwomenstalk.com/the-best-apps-to-waste-time-before-class-starts/)
-- [games for killing time](https://apps.allwomenstalk.com/app-games-for-killing-time/)
 - [job hiring apps](https://apps.allwomenstalk.com/job-hunting-apps-to-aid-in-your-search/)
+- [apps to play when bored in class](https://apps.allwomenstalk.com/the-best-apps-to-waste-time-before-class-starts/)
+- [best app to get concert tickets](https://apps.allwomenstalk.com/never-miss-a-concert-again-with-these-apps/)
 - [valentine apps](https://apps.allwomenstalk.com/apps-to-help-make-valentines-day-even-more-perfect/)
+- [games for killing time](https://apps.allwomenstalk.com/app-games-for-killing-time/)
+- [nifty apps](https://apps.allwomenstalk.com/come-on-get-appy-these-nifty-fitness-apps-will-make-you-healthy-and-happy/)
+- [tooth apps](https://apps.allwomenstalk.com/here-are-the-apps-your-sweet-tooth-will-love/)
 - [good apps games](https://apps.allwomenstalk.com/the-top-app-games-youll-get-hooked-on-this-year/)
 - [game game 2](https://apps.allwomenstalk.com/fantastic-app-games-that-dont-require-internet/)
 - [8 Great Fashion Apps ...](https://fashion.allwomenstalk.com/great-fashion-apps/)

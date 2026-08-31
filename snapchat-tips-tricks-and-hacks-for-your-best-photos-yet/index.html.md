@@ -116,16 +116,16 @@ There are tons of ways to upgrade your Snapchat game if you're into that. Some t
 
 ## Related Posts
 
-- [where should your eyes look when taking a selfie](https://beauty.allwomenstalk.com/selfie-mistakes-that-are-ruining-your-pictures/)
-- [celeb nation photos](https://celebs.allwomenstalk.com/these-fab-celeb-photos-will-inspire-your-own-holiday-cards/)
 - [dubious plating](https://food.allwomenstalk.com/wait-until-you-see-these-dubious-dinner-disasters-served-up-on-instagram/)
-- [nikki dream instagram](https://beauty.allwomenstalk.com/see-the-instagram-makeup-that-wowed-us-in/)
 - [uriah shelton instagram](https://music.allwomenstalk.com/the-best-instagram-covers-from-your-favorite-celebs/)
-- [hysterical pictures](https://lifestyle.allwomenstalk.com/hysterical-holiday-photos-thatll-have-you-cracking-up/)
 - [most instagrammed places in the world](https://travel.allwomenstalk.com/the-most-instagrammed-places-of/)
-- [hats on snakes](https://funny.allwomenstalk.com/photos-of-snakes-wearing-hats-will-make-you-love-them/)
+- [hysterical pictures](https://lifestyle.allwomenstalk.com/hysterical-holiday-photos-thatll-have-you-cracking-up/)
 - [annie leibovitz pirelli calendar](https://lifestyle.allwomenstalk.com/if-you-need-some-self-love-you-must-see-pirelli-calendar/)
+- [nikki dream instagram](https://beauty.allwomenstalk.com/see-the-instagram-makeup-that-wowed-us-in/)
+- [celeb nation photos](https://celebs.allwomenstalk.com/these-fab-celeb-photos-will-inspire-your-own-holiday-cards/)
+- [where should your eyes look when taking a selfie](https://beauty.allwomenstalk.com/selfie-mistakes-that-are-ruining-your-pictures/)
 - [what to photograph](https://diy.allwomenstalk.com/tips-for-taking-the-best-photographs-ever/)
+- [hats on snakes](https://funny.allwomenstalk.com/photos-of-snakes-wearing-hats-will-make-you-love-them/)
 - [9 Incredible Tips to Look Great in Every Photo ...](https://beauty.allwomenstalk.com/tips-to-look-great-in-every-photo/)
 - [7 Easy PhotoShop Tricks for the Best Pictures Ever...](https://lifestyle.allwomenstalk.com/easy-photoshop-tricks-for-the-best-pictures-ever/)
 

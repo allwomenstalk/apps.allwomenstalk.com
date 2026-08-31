@@ -56,16 +56,16 @@ Can you think of any other reasons why Harry Potter Go would kick Pokémon Go's 
 
 ## Related Posts
 
+- [The Best of the #MannequinChallenge so Far ...](https://funny.allwomenstalk.com/the-best-of-the-mannequinchallenge-so-far/)
 - [9 "Game of Thrones" Deaths We're Still Not over .....](https://movies.allwomenstalk.com/game-of-thrones-deaths-we-are-still-not-over/)
-- [⏰ ...](https://inspiration.allwomenstalk.com/amazing-self-care-tips-for-girls-who-need-to-focus-on-them-once-in-awhile/)
-- [7 Insanely Awesome Shows to Fill the Void Left by ...](https://movies.allwomenstalk.com/insanely-awesome-shows-to-fill-the-void-left-by-game-of-thrones/)
 - [OMG! Making a Murderer is Coming to Netflix and He...](https://movies.allwomenstalk.com/omg-making-a-murderer-is-coming-to-netflix-and-heres-why-you-need-to-watch-it/)
-- [Short Story : the German Lady ...](https://books.allwomenstalk.com/short-story-called-the-german-lady/)
-- [This is Why We All Need to Vote for Those Who Are ...](https://lifestyle.allwomenstalk.com/this-is-why-we-all-need-to-vote-for-those-who-are-18-but-hesitant-about-elections/)
-- [Hot New TV Shows to Check out This Fall ...](https://movies.allwomenstalk.com/hot-new-tv-shows-to-check-out-this-fall/)
+- [7 Insanely Awesome Shows to Fill the Void Left by ...](https://movies.allwomenstalk.com/insanely-awesome-shows-to-fill-the-void-left-by-game-of-thrones/)
+- [⏰ ...](https://inspiration.allwomenstalk.com/amazing-self-care-tips-for-girls-who-need-to-focus-on-them-once-in-awhile/)
 - [Your Dark Side Will Flip over the New Goth Latte T...](https://food.allwomenstalk.com/your-dark-side-will-flip-over-the-new-goth-latte-taking-the-world-by-storm/)
 - [Short Story : the Rise and Fall ⬆️⬇️ of Martha ...](https://books.allwomenstalk.com/short-story-called-the-rise-and-fall-of-martha/)
-- [The Best of the #MannequinChallenge so Far ...](https://funny.allwomenstalk.com/the-best-of-the-mannequinchallenge-so-far/)
+- [Short Story : the German Lady ...](https://books.allwomenstalk.com/short-story-called-the-german-lady/)
+- [Hot New TV Shows to Check out This Fall ...](https://movies.allwomenstalk.com/hot-new-tv-shows-to-check-out-this-fall/)
+- [This is Why We All Need to Vote for Those Who Are ...](https://lifestyle.allwomenstalk.com/this-is-why-we-all-need-to-vote-for-those-who-are-18-but-hesitant-about-elections/)
 - [7 Reasons to Watch Harry Potter Movies ...](https://movies.allwomenstalk.com/reasons-to-watch-harry-potter-movies/)
 - [7 Books That Should Be Movies ...](https://movies.allwomenstalk.com/books-that-should-be-movies/)
 

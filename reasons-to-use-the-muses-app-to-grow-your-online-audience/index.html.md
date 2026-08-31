@@ -35,15 +35,15 @@ So, get on the bandwagon and download Muses_ now. Dont forget to let your commun
 ## Related Posts
 
 - [why do you want to become a mentor](https://lifestyle.allwomenstalk.com/why-you-should-become-a-mentor/)
-- [stray kids journal ideas](https://lifestyle.allwomenstalk.com/reasons-to-keep-a-journal/)
-- [dating someone who travels a lot](https://love.allwomenstalk.com/why-you-should-date-a-man-who-travels/)
-- [benefits of being small](https://beauty.allwomenstalk.com/the-benefits-of-being-a-short-woman/)
-- [why buy fairtrade](https://lifestyle.allwomenstalk.com/reasons-to-buy-fair-trade-products/)
-- [why are danes happy](https://travel.allwomenstalk.com/why-denmark-is-a-happy-country/)
-- [benefits of youtube red](https://apps.allwomenstalk.com/benefits-of-youtube-red/)
 - [life at the beach](https://lifestyle.allwomenstalk.com/why-living-at-the-beach-is-so-great/)
-- [is social media designed to be addictive](https://apps.allwomenstalk.com/why-is-social-media-so-addictive/)
+- [benefits of being small](https://beauty.allwomenstalk.com/the-benefits-of-being-a-short-woman/)
 - [showers are better than baths](https://health.allwomenstalk.com/why-baths-are-better-than-showers/)
+- [is social media designed to be addictive](https://apps.allwomenstalk.com/why-is-social-media-so-addictive/)
+- [stray kids journal ideas](https://lifestyle.allwomenstalk.com/reasons-to-keep-a-journal/)
+- [why are danes happy](https://travel.allwomenstalk.com/why-denmark-is-a-happy-country/)
+- [why buy fairtrade](https://lifestyle.allwomenstalk.com/reasons-to-buy-fair-trade-products/)
+- [dating someone who travels a lot](https://love.allwomenstalk.com/why-you-should-date-a-man-who-travels/)
+- [benefits of youtube red](https://apps.allwomenstalk.com/benefits-of-youtube-red/)
 - [7 Tips on Using Facebook for Your Business ...](https://lifestyle.allwomenstalk.com/tips-on-using-facebook-for-your-business/)
 - [10 Helpful Tips on How to Build Your Brand Awarene...](https://allwomenstalk.com/how-to-build-your-brand-awareness/)
 

@@ -112,16 +112,16 @@ It doesn't get more basic than this. When it comes down to it, no matter how man
 
 ## Related Posts
 
-- [double standerd](https://lifestyle.allwomenstalk.com/double-standards-you-didnt-know-women-experience-every-day/)
-- [cant take a hint](https://love.allwomenstalk.com/insight-for-the-girls-who-cant-take-a-hint/)
-- [dating in 50's](https://love.allwomenstalk.com/the-harsh-realities-of-being-a-woman-online-and-dating-in-your-50s/)
-- [wantab](https://diet.allwomenstalk.com/healthy-habits-for-girls-who-want-ab-definition/)
-- [things to accept](https://inspiration.allwomenstalk.com/how-to-feel-worthy-of-good-things-in-life-for-women-struggling-to-accept-themselves/)
-- [be body smart](https://health.allwomenstalk.com/things-women-need-to-know-to-be-body-smart/)
 - [sexier](https://love.allwomenstalk.com/nerdy-girls-unite-all-the-reasons-why-the-smarter-you-are-the-sexier-you-are/)
-- [how to be less shy and more confident](https://inspiration.allwomenstalk.com/perfect-strategies-for-shy-girls-to-gain-more-confidence/)
-- [perfect girl categories](https://lifestyle.allwomenstalk.com/the-personality-types-you-need-to-befriend-to-make-up-the-perfect-girl-crew/)
+- [double standerd](https://lifestyle.allwomenstalk.com/double-standards-you-didnt-know-women-experience-every-day/)
 - [girl instincts](https://lifestyle.allwomenstalk.com/ways-to-develop-your-intuition-for-girls-wanting-to-be-more-in-tune-with-themselves/)
+- [wantab](https://diet.allwomenstalk.com/healthy-habits-for-girls-who-want-ab-definition/)
+- [be body smart](https://health.allwomenstalk.com/things-women-need-to-know-to-be-body-smart/)
+- [how to be less shy and more confident](https://inspiration.allwomenstalk.com/perfect-strategies-for-shy-girls-to-gain-more-confidence/)
+- [dating in 50's](https://love.allwomenstalk.com/the-harsh-realities-of-being-a-woman-online-and-dating-in-your-50s/)
+- [cant take a hint](https://love.allwomenstalk.com/insight-for-the-girls-who-cant-take-a-hint/)
+- [perfect girl categories](https://lifestyle.allwomenstalk.com/the-personality-types-you-need-to-befriend-to-make-up-the-perfect-girl-crew/)
+- [things to accept](https://inspiration.allwomenstalk.com/how-to-feel-worthy-of-good-things-in-life-for-women-struggling-to-accept-themselves/)
 - [10 Tips and Tricks Every Modern Girl Should Master...](https://lifestyle.allwomenstalk.com/tips-and-tricks-every-modern-girl-should-master/)
 - [9 Fitness Tips for Beginners Every Girl Should Kno...](https://health.allwomenstalk.com/fitness-tips-for-beginners-every-girl-should-know/)
 

@@ -32,16 +32,16 @@ It one of the most annoying things in the world when you ask a few friends round
 
 ## Related Posts
 
-- [Why It's Ok You do Not Know What You Want to do 🤔...](https://money.allwomenstalk.com/why-its-ok-you-do-not-know-what-you-want-to-do-now-you-have-graduated/)
-- [Don't Take Your Second 2️⃣ and Third 3️⃣ Chance fo...](https://inspiration.allwomenstalk.com/dont-take-your-second-2-and-third-3-chance-for-granted/)
-- [paris color le stylo garde](https://inspiration.allwomenstalk.com/do-not-pass-on-these-life-changing-opportunities/)
-- [The Importance of a Support System when You Have a...](https://health.allwomenstalk.com/the-importance-of-a-support-system-when-you-have-a-mental-illness/)
-- [A Better Way to Look at Death ...](https://inspiration.allwomenstalk.com/a-better-way-to-look-at-death/)
-- [Why Being a Geek Isn't a Bad Thing ...](https://inspiration.allwomenstalk.com/why-being-a-geek-isnt-a-bad-thing/)
-- [Exceptional Things Mentally Strong People do ...](https://inspiration.allwomenstalk.com/exceptional-things-mentally-strong-people-do/)
-- [Uncomfortable Things You Must Deal with Head on fo...](https://inspiration.allwomenstalk.com/uncomfortable-things-you-must-deal-with-head-on-for-a-comfortable-life/)
-- [When 🤔 Not to Talk Yourself out of It ...](https://inspiration.allwomenstalk.com/when-not-to-talk-yourself-out-of-it/)
 - [pumpkin seeds quotes](https://inspiration.allwomenstalk.com/keep-the-faith-even-the-size-of-a-pumpkin-seed/)
+- [The Importance of a Support System when You Have a...](https://health.allwomenstalk.com/the-importance-of-a-support-system-when-you-have-a-mental-illness/)
+- [Uncomfortable Things You Must Deal with Head on fo...](https://inspiration.allwomenstalk.com/uncomfortable-things-you-must-deal-with-head-on-for-a-comfortable-life/)
+- [Exceptional Things Mentally Strong People do ...](https://inspiration.allwomenstalk.com/exceptional-things-mentally-strong-people-do/)
+- [Why Being a Geek Isn't a Bad Thing ...](https://inspiration.allwomenstalk.com/why-being-a-geek-isnt-a-bad-thing/)
+- [Don't Take Your Second 2️⃣ and Third 3️⃣ Chance fo...](https://inspiration.allwomenstalk.com/dont-take-your-second-2-and-third-3-chance-for-granted/)
+- [A Better Way to Look at Death ...](https://inspiration.allwomenstalk.com/a-better-way-to-look-at-death/)
+- [When 🤔 Not to Talk Yourself out of It ...](https://inspiration.allwomenstalk.com/when-not-to-talk-yourself-out-of-it/)
+- [Why It's Ok You do Not Know What You Want to do 🤔...](https://money.allwomenstalk.com/why-its-ok-you-do-not-know-what-you-want-to-do-now-you-have-graduated/)
+- [paris color le stylo garde](https://inspiration.allwomenstalk.com/do-not-pass-on-these-life-changing-opportunities/)
 - [5 Ways to Stop Talking about Yourself ...](https://lifestyle.allwomenstalk.com/ways-to-stop-talking-about-yourself/)
 - [5 Things to Help You Pass the Time...](https://baking.allwomenstalk.com/5-things-to-help-you-pass-the-time/)
 

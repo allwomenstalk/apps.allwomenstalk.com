@@ -62,13 +62,13 @@ Well, there you have it. These are just seven out of many awesome apps for meal 
 
 ## Related Posts
 
-- [is skipping dinner ok](https://teen.allwomenstalk.com/reasons-teens-shouldnt-skip-meals/)
-- [can i eat oatmeal for dinner](https://food.allwomenstalk.com/ways-to-eat-oatmeal-outside-of-breakfast-to-keep-you-full-and-energized/)
 - [food to eat on a date](https://food.allwomenstalk.com/non-messy-foods-that-are-safe-to-order-on-a-first-date/)
-- [naturally sweet fruits](https://food.allwomenstalk.com/healthy-and-naturally-sweet-foods-to-eat-to-conquer-your-sugar-addiction/)
+- [is skipping dinner ok](https://teen.allwomenstalk.com/reasons-teens-shouldnt-skip-meals/)
 - [how to eat a good breakfast](https://food.allwomenstalk.com/ways-to-make-sure-you-eat-breakfast-every-morning/)
-- [best pizza delivery in siesta key](https://food.allwomenstalk.com/make-ahead-meals-for-weight-loss/)
+- [can i eat oatmeal for dinner](https://food.allwomenstalk.com/ways-to-eat-oatmeal-outside-of-breakfast-to-keep-you-full-and-energized/)
 - [foraging trend](https://food.allwomenstalk.com/tips-for-the-foraging-food-trend/)
+- [best pizza delivery in siesta key](https://food.allwomenstalk.com/make-ahead-meals-for-weight-loss/)
+- [naturally sweet fruits](https://food.allwomenstalk.com/healthy-and-naturally-sweet-foods-to-eat-to-conquer-your-sugar-addiction/)
 - [low calorie party food](https://food.allwomenstalk.com/low-calorie-party-snacks-for-the-holidays/)
 - [how to eat well in college](https://diet.allwomenstalk.com/ways-to-ensure-you-eat-well-at-college/)
 - [the seven rules of gut health](https://health.allwomenstalk.com/rules-for-promoting-gut-health/)

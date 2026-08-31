@@ -56,16 +56,16 @@ How do you print your Insta-snaps? Do tell!
 
 ## Related Posts
 
-- [what to wear in black and white photos](https://diy.allwomenstalk.com/how-to-take-artsy-black-and-white-photos/)
-- [girlie pictures](https://funny.allwomenstalk.com/these-hilarious-guys-recreated-girlie-instagram-pics-results-amazing/)
-- [ig selfie](https://apps.allwomenstalk.com/selfie-secrets-from-the-instagram-famous/)
-- [jobs at snapchat](https://lifestyle.allwomenstalk.com/paint-jobs-thatll-push-you-to-up-your-snapchat-game/)
-- [huge sigh of relief gif](https://lifestyle.allwomenstalk.com/gifs-thatll-make-perfectionists-sigh-with-relief/)
-- [instagram sensation meaning](https://apps.allwomenstalk.com/how-to-become-an-instagram-sensation/)
-- [jaw drop pic](https://lifestyle.allwomenstalk.com/play-doh-photos-thatll-make-your-jaw-drop/)
-- [telephone torture](https://travel.allwomenstalk.com/torture-your-friends-with-instagram-pictures-of-your-holiday-in-the-uk/)
-- [seniro girl](https://teen.allwomenstalk.com/stand-out-with-these-senior-picture-ideas/)
 - [Cuteness Overload! Check out These 23 Celebs and T...](https://celebs.allwomenstalk.com/cuteness-overload-check-out-these-celebs-and-their-pets-on-instagram/)
+- [instagram sensation meaning](https://apps.allwomenstalk.com/how-to-become-an-instagram-sensation/)
+- [seniro girl](https://teen.allwomenstalk.com/stand-out-with-these-senior-picture-ideas/)
+- [telephone torture](https://travel.allwomenstalk.com/torture-your-friends-with-instagram-pictures-of-your-holiday-in-the-uk/)
+- [huge sigh of relief gif](https://lifestyle.allwomenstalk.com/gifs-thatll-make-perfectionists-sigh-with-relief/)
+- [jaw drop pic](https://lifestyle.allwomenstalk.com/play-doh-photos-thatll-make-your-jaw-drop/)
+- [girlie pictures](https://funny.allwomenstalk.com/these-hilarious-guys-recreated-girlie-instagram-pics-results-amazing/)
+- [jobs at snapchat](https://lifestyle.allwomenstalk.com/paint-jobs-thatll-push-you-to-up-your-snapchat-game/)
+- [ig selfie](https://apps.allwomenstalk.com/selfie-secrets-from-the-instagram-famous/)
+- [what to wear in black and white photos](https://diy.allwomenstalk.com/how-to-take-artsy-black-and-white-photos/)
 - [7 Tips on Taking Beautiful Digital Photographs ...](https://allwomenstalk.com/7-tips-on-taking-beautiful-digital-photographs/)
 - [7 Best IPhone Photo Apps ...](https://allwomenstalk.com/7-best-iphone-photo-apps/)
 

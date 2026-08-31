@@ -127,16 +127,16 @@ These are just a few of the great Facebook time-suckers out there. Just so you k
 
 ## Related Posts
 
-- [Out with the Old: Snag a New Year's Date with a Ne...](https://apps.allwomenstalk.com/out-with-the-old-snag-a-new-years-date-with-a-new-kind-of-app/)
+- [Stay Organized with These Helpful and Efficient Ap...](https://apps.allwomenstalk.com/stay-organized-with-these-helpful-and-efficient-apps/)
+- [apps like words with friends](https://apps.allwomenstalk.com/remember-words-with-friends-here-are-newer-apps-to-play-against-your-pals/)
 - [7 Amazing Google Services You Should Know about .....](https://apps.allwomenstalk.com/amazing-google-services-you-should-know-about/)
-- [interval training app](https://fitness.allwomenstalk.com/must-have-interval-training-apps/)
+- [Out with the Old: Snag a New Year's Date with a Ne...](https://apps.allwomenstalk.com/out-with-the-old-snag-a-new-years-date-with-a-new-kind-of-app/)
+- [7signs app](https://apps.allwomenstalk.com/of-the-best-apps-for-last-minute-travel/)
+- [7 Best Apps to Get You Totally Organized ...](https://apps.allwomenstalk.com/best-apps-to-get-you-totally-organized/)
+- [9 Fabulicious Apps for Foodies ...](https://apps.allwomenstalk.com/fabulicious-apps-for-foodies/)
 - [7 Apps That Will Help You Change Your Life This Ye...](https://apps.allwomenstalk.com/apps-that-will-help-you-change-your-life-this-year/)
 - [Period Tracker Apps to Help You through the Month ...](https://apps.allwomenstalk.com/period-tracker-apps-to-help-you-through-the-month/)
-- [apps like words with friends](https://apps.allwomenstalk.com/remember-words-with-friends-here-are-newer-apps-to-play-against-your-pals/)
-- [Stay Organized with These Helpful and Efficient Ap...](https://apps.allwomenstalk.com/stay-organized-with-these-helpful-and-efficient-apps/)
-- [9 Fabulicious Apps for Foodies ...](https://apps.allwomenstalk.com/fabulicious-apps-for-foodies/)
-- [7 Best Apps to Get You Totally Organized ...](https://apps.allwomenstalk.com/best-apps-to-get-you-totally-organized/)
-- [7signs app](https://apps.allwomenstalk.com/of-the-best-apps-for-last-minute-travel/)
+- [interval training app](https://fitness.allwomenstalk.com/must-have-interval-training-apps/)
 - [7 Best Travel Apps for the IPhone ...](https://travel.allwomenstalk.com/7-best-travel-apps-for-the-iphone/)
 - [7 Best and Interestingly Amusing Free Travel Apps ...](https://gadgets.allwomenstalk.com/best-and-interestingly-amusing-free-travel-apps/)
 

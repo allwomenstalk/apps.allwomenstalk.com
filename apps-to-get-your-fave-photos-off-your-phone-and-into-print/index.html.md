@@ -118,15 +118,15 @@ I love the entire AU line, which uses reclaimed mountain beetle pine in its comp
 
 ## Related Posts
 
-- [meet new female friends](https://apps.allwomenstalk.com/the-tinder-app-for-finding-new-female-friends/)
-- [shopping app like wish](https://apps.allwomenstalk.com/easily-enable-your-shopping-addiction-with-these-fab-apps/)
-- [organize your life app](https://apps.allwomenstalk.com/amazing-life-organizing-apps-that-will-give-you-full-control-of-your-life/)
-- [addictive games](https://apps.allwomenstalk.com/super-addictive-games-to-play-on-your-smartphone/)
-- [fitstar personal trainer](https://apps.allwomenstalk.com/apps-that-turn-your-phone-into-a-personal-trainer/)
-- [apps for scholarships](https://apps.allwomenstalk.com/the-app-that-makes-it-easier-to-apply-for-college-scholarships/)
 - [journal online diary](https://lifestyle.allwomenstalk.com/websites-you-can-use-to-keep-a-diary/)
-- [apps like zulily](https://apps.allwomenstalk.com/apps-every-shopping-addict-out-there-needs/)
+- [meet new female friends](https://apps.allwomenstalk.com/the-tinder-app-for-finding-new-female-friends/)
+- [organize your life app](https://apps.allwomenstalk.com/amazing-life-organizing-apps-that-will-give-you-full-control-of-your-life/)
+- [fitstar personal trainer](https://apps.allwomenstalk.com/apps-that-turn-your-phone-into-a-personal-trainer/)
+- [addictive games](https://apps.allwomenstalk.com/super-addictive-games-to-play-on-your-smartphone/)
+- [shopping app like wish](https://apps.allwomenstalk.com/easily-enable-your-shopping-addiction-with-these-fab-apps/)
 - [popular apps in 2014](https://apps.allwomenstalk.com/what-were-the-most-popular-apps-of/)
+- [apps for scholarships](https://apps.allwomenstalk.com/the-app-that-makes-it-easier-to-apply-for-college-scholarships/)
+- [apps like zulily](https://apps.allwomenstalk.com/apps-every-shopping-addict-out-there-needs/)
 - [free relationship advice app](https://apps.allwomenstalk.com/these-apps-might-just-save-your-relationship/)
 - [Organizing Your Photos](https://gadgets.allwomenstalk.com/organizing-your-photos/)
 - [7 Fantastic Fashion Photography Books ...](https://allwomenstalk.com/7-fantastic-fashion-photography-books/)
