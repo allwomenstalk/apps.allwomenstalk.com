@@ -3,7 +3,7 @@ title: "23 Times J.K. Rowling Absolutely Owned Twitter Haters"
 description: "In Response to a Mysoginistic Troll; Read the Books; She Always Says \"thank You\"; In Response to Ridiculous WBC Bigots; We Love Serena, Too!; More ..."
 url: "https://apps.allwomenstalk.com/times-j-k-rowling-owned-twitter/"
 category: "apps"
-last_updated: "2026-09-28"
+last_updated: "2026-10-10"
 ---
 
 # 23 Times J.K. Rowling Absolutely Owned Twitter Haters
@@ -193,15 +193,15 @@ Even when dealing with a jk rowling twitter harry potter question she can't reme
 ## Related Posts
 
 - [kcd elements](https://lifestyle.allwomenstalk.com/get-your-science-on-with-these-sweet-sketches/)
-- [the black whopper](https://food.allwomenstalk.com/the-curse-of-the-black-whopper-of-the-most-wtf-fast-food-items/)
-- [deepawali 2015](https://travel.allwomenstalk.com/happy-diwali/)
-- [best black and white romantic movies](https://movies.allwomenstalk.com/epic-black-and-white-romances/)
 - [if the shoe fits trailer rob lowe](https://movies.allwomenstalk.com/cinderella-the-fairytale-told-many-times-over/)
-- [funny logos](https://funny.allwomenstalk.com/funniest-logo-design-fails-ever-who-designed-these/)
-- [romance disney movies](https://love.allwomenstalk.com/shock-here-are-the-lies-that-disney-told-us-about-romance/)
-- [harry potter book eight](https://books.allwomenstalk.com/things-we-now-know-about-harry-potter-and-the-cursed-child/)
-- [periods pain image](https://funny.allwomenstalk.com/cartoons-that-portray-what-our-periods-are-really-like/)
 - [saucy story](https://love.allwomenstalk.com/short-story-high-school-reunion/)
+- [best black and white romantic movies](https://movies.allwomenstalk.com/epic-black-and-white-romances/)
+- [funny logos](https://funny.allwomenstalk.com/funniest-logo-design-fails-ever-who-designed-these/)
+- [deepawali 2015](https://travel.allwomenstalk.com/happy-diwali/)
+- [harry potter book eight](https://books.allwomenstalk.com/things-we-now-know-about-harry-potter-and-the-cursed-child/)
+- [romance disney movies](https://love.allwomenstalk.com/shock-here-are-the-lies-that-disney-told-us-about-romance/)
+- [periods pain image](https://funny.allwomenstalk.com/cartoons-that-portray-what-our-periods-are-really-like/)
+- [the black whopper](https://food.allwomenstalk.com/the-curse-of-the-black-whopper-of-the-most-wtf-fast-food-items/)
 - [5 Reasons Twilight is Better than Harry Potter ...](https://twilight.allwomenstalk.com/5-reasons-twilight-is-better-than-harry-potter/)
 - [5 Facts on Twilight ...](https://twilight.allwomenstalk.com/5-facts-on-twilight/)
 
